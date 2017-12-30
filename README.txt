@@ -1,3 +1,158 @@
+2017-12-28: Paddle Your Own Canoe: One Man's Fundamentals for Delicious Living by Nick Offerman (**). 352 pages. Published in 2013.
+2017-12-24: Provenance by Ann Leckie (**). 448 pages. Published in 2017.
+2017-12-20: Everything That Rises Must Converge by Flannery O'Connor (****). 320 pages. Published in 1965.
+2017-12-19: The Everything Store: Jeff Bezos and the Age of Amazon by Brad Stone (***). 416 pages. Published in 2013.
+2017-12-15: Горе от ума by Alexander Griboyedov (*). 201 pages. Published in 1825.
+2017-12-13: Ginny Moon by Benjamin Ludwig (*****). 384 pages. Published in 2017.
+2017-12-11: Leonardo da Vinci by Walter Isaacson (***). 624 pages. Published in 2017.
+2017-12-10: What We Talk About When We Talk About Love by Raymond Carver (****). 176 pages. Published in 1981.
+2017-12-04: The Underground Railroad by Colson Whitehead (***). 320 pages. Published in 2016.
+2017-12-02: Troublemakers: Silicon Valleyâ€™s Coming of Age by Leslie Berlin (***). 512 pages. Published in 2017.
+2017-12-02: Rat Queens: High Fantasies by Kurtis J. Wiebe  (***). 128 pages. Published in 2017.
+2017-11-29: Diaspora by Greg Egan (***). 416 pages. Published in 1997.
+2017-11-27: Life 3.0: Being Human in the Age of Artificial Intelligence by Max Tegmark (***). 384 pages. Published in 2017.
+2017-11-25: The Sellout by Paul Beatty (***). 304 pages. Published in 2015.
+2017-11-24: The Prairie by James Fenimore Cooper (*). 444 pages. Published in 1827.
+2017-11-23: Our Mathematical Universe by Max Tegmark (****). 432 pages. Published in 2014.
+2017-11-21: Hoover: An Extraordinary Life in Extraordinary Times by Kenneth Whyte (****). 752 pages. Published in 2017.
+2017-11-16: Artemis by Andy Weir (****). 320 pages. Published in 2017.
+2017-11-14: Fifty Inventions That Shaped the Modern Economy by Tim Harford (***). 336 pages. Published in 2017.
+2017-11-10: The Getaway by Jeff Kinney (***). 217 pages. Published in 2017.
+2017-11-09: Words on the Move: Why English Won't - and Can't - Sit Still (Like, Literally) by John McWhorter (****). 272 pages. Published in 2016.
+2017-11-07: We Are Legion (We Are Bob) by Dennis E. Taylor (***). 308 pages. Published in 2016.
+2017-11-04: Saga, Vol. 6 by Brian K. Vaughan (***). 152 pages. Published in 2016.
+2017-11-01: The Moon and Sixpence by W. Somerset Maugham (**). 176 pages. Published in 1919.
+2017-10-30: Behave: The Biology of Humans at Our Best and Worst by Robert M. Sapolsky (*****). 800 pages. Published in 2017.
+2017-10-23: The Book of Dust: La Belle Sauvage by Philip Pullman (***). 464 pages. Published in 2017.
+2017-10-19: The Last of the Mohicans by James Fenimore Cooper (**). 424 pages. Published in 1826.
+2017-10-18: Lady Windermere's Fan by Oscar Wilde (****). 78 pages. Published in 1892.
+2017-10-17: The Reef by Edith Wharton (***). 290 pages. Published in 1912.
+2017-10-14: Turtles All the Way Down by John Green (****). 304 pages. Published in 2017.
+2017-10-13: Perdido Street Station by China MiÃ©ville (**). 710 pages. Published in 2000.
+2017-10-11: The Pope of Physics: Enrico Fermi and the Birth of the Atomic Age by Gino Segre & Bettina Hoerlin (***). 368 pages. Published in 2016.
+2017-10-05: The Selfish Gene by Richard Dawkins (*****). 544 pages. Published in 1976.
+2017-10-05: Fables: Rose Red by Bill Willingham (****). 250 pages. Published in 2011.
+2017-10-03: Dreaming the Beatles: The Love Story of One Band and the Whole World by Rob Sheffield (***). 368 pages. Published in 2017.
+2017-10-02: Blood, Sweat, and Pixels: The Triumphant, Turbulent Stories Behind How Video Games Are Made by Jason Schreier (****). 320 pages. Published in 2017.
+2017-09-27: The Mating Season by P. G. Wodehouse (***). 272 pages. Published in 1949.
+2017-09-23: The Brothers K by David James Duncan (***). 736 pages. Published in 1992.
+2017-09-22: Fanshawe by Nathaniel Hawthorne (*). 114 pages. Published in 1828.
+2017-09-21: Superfandom: How Our Obsessions are Changing What We Buy and Who We Are by Zoe Fraade-Blanar & Aaron M. Glazer (***). 336 pages. Published in 2017.
+2017-09-20: How to Be Happy by Eleanor Davis (***). 152 pages. Published in 2014.
+2017-09-15: Fables: Witches by Bill Willingham (***). 192 pages. Published in 2010.
+2017-09-13: Miracle Cure: The Creation of Antibiotics and the Birth of Modern Medicine by William Rosen (*****). 368 pages. Published in 2017.
+2017-09-10: The Duke's Children by Anthony Trollope (****). 704 pages. Published in 1880.
+2017-09-09: Paper Girls, Vol. 3 by Brian K. Vaughan (***). 128 pages. Published in 2017.
+2017-09-04: The Unwritten: The Wound by Mike Carey (***). 144 pages. Published in 2013.
+2017-09-03: Rat Queens: Demons by Kurtis J. Wiebe (***). 160 pages. Published in 2016.
+2017-09-03: Bad Science by Ben Goldacre (***). 304 pages. Published in 2008.
+2017-08-31: The Unbearable Lightness of Being by Milan Kundera (**). 320 pages. Published in 1984.
+2017-08-29: The Painted Veil by W. Somerset Maugham (***). 246 pages. Published in 1925.
+2017-08-27: The Pioneers by James Fenimore Cooper (*). 270 pages. Published in 1823.
+2017-08-27: Paper Girls, Vol. 2 by Brian K. Vaughan (*****). 128 pages. Published in 2016.
+2017-08-26: Stargirl by Jerry Spinelli (***). 208 pages. Published in 2000.
+2017-08-25: The Knowledge Illusion: Why We Never Think Alone by Steven Sloman & Philip Fernbach (***). 304 pages. Published in 2017.
+2017-08-23: Lord Valentine's Castle by Robert Silverberg (**). 480 pages. Published in 1980.
+2017-08-22: Paper Girls, Vol. 1 by Brian K. Vaughan (*****). 144 pages. Published in 2016.
+2017-08-21: The Unwritten: Tommy Taylor and the War of Words by Mike Carey (****). 240 pages. Published in 2012.
+2017-08-16: Whose Body? by Dorothy L. Sayers (**). 224 pages. Published in 1923.
+2017-08-13: Spoonbenders by Daryl Gregory (*****). 416 pages. Published in 2017.
+2017-08-11: If on a winter's night a traveler by Italo Calvino (***). 260 pages. Published in 1979.
+2017-08-08: A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (****). 384 pages. Published in 2017.
+2017-08-05: Main Street by Sinclair Lewis (***). 480 pages. Published in 1920.
+2017-08-02: The Hunchback of Notre-Dame by Victor Hugo (**). 544 pages. Published in 1831.
+2017-08-02: After Dark by Haruki Murakami (**). 256 pages. Published in 2004.
+2017-08-01: Barking up the Wrong Tree: The Surprising Science Behind Why Everything You Know About Success Is (Mostly) Wrong by Eric Barker (***). 320 pages. Published in 2017.
+2017-07-29: Who Fears Death by Nnedi Okorafor (*). 432 pages. Published in 2010.
+2017-07-28: Distress by Greg Egan (***). 400 pages. Published in 1995.
+2017-07-22: The Prime Minister by Anthony Trollope (***). 736 pages. Published in 1876.
+2017-07-21: The Murder on the Links by Agatha Christie (***). 272 pages. Published in 1923.
+2017-07-20: Everybody Lies: Big Data, New Data, and What the Internet Can Tell Us About Who We Really Are by Seth Stephens-Davidowitz (*****). 352 pages. Published in 2017.
+2017-07-20: EugÃ©nie Grandet by HonorÃ© de Balzac (**). 256 pages. Published in 1833.
+2017-07-16: A Man Called Ove by Fredrik Backman (****). 337 pages. Published in 2012.
+2017-07-15: Eugene Onegin by Alexander Pushkin (**). 304 pages. Published in 1832.
+2017-07-14: Parable of the Sower by Octavia E. Butler (**). 352 pages. Published in 1993.
+2017-07-11: iWoz by Steve Wozniak (****). 336 pages. Published in 2006.
+2017-07-07: Permutation City by Greg Egan (****). 352 pages. Published in 1994.
+2017-07-06: Phineas Redux by Anthony Trollope (****). 688 pages. Published in 1874.
+2017-07-03: An Ideal Husband by Oscar Wilde (****). 114 pages. Published in 1895.
+2017-07-01: Eleanor Oliphant Is Completely Fine by Gail Honeyman (*****). 336 pages. Published in 2017.
+2017-06-28: Sputnik Sweetheart by Haruki Murakami (***). 210 pages. Published in 1999.
+2017-06-24: The Guns of August by Barbara W. Tuchman (***). 640 pages. Published in 1962.
+2017-06-20: Kindred by Octavia E. Butler (****). 264 pages. Published in 1979.
+2017-06-19: The Red and the Black by Stendahl (**). 607 pages. Published in 1830.
+2017-06-18: Binti: Home by Nnedi Okorafor (***). 166 pages. Published in 2017.
+2017-06-16: Binti by Nnedi Okorafor (*****). 98 pages. Published in 2015.
+2017-06-15: Imago by Octavia E. Butler (****). 224 pages. Published in 1989.
+2017-06-13: Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****). 240 pages. Published in 2015.
+2017-06-09: The Wise Man's Fear by Patrick Rothfuss (***). 1120 pages. Published in 2011.
+2017-06-05: Martin Chuzzlewit by Charles Dickens (**). 832 pages. Published in 1844.
+2017-06-04: On Booze by F. Scott Fitzgerald (**). 86 pages. Published in 1945.
+2017-06-02: The End of the Affair by Graham Greene (**). 192 pages. Published in 1951.
+2017-05-30: Algorithms to Live By: The Computer Science of Human Decisions by Brian Christian & Tom Griffiths (*****). 369 pages. Published in 2016.
+2017-05-29: Adulthood Rites by Octavia E. Butler (***). 304 pages. Published in 1988.
+2017-05-28: The System of the World by Neal Stephenson (**). 928 pages. Published in 2004.
+2017-05-26: A Woman of No Importance by Oscar Wilde (***). 141 pages. Published in 1893.
+2017-05-25: Catch-22 by Joseph Heller (****). 544 pages. Published in 1961.
+2017-05-18: Scaramouche by Rafael Sabatini (**). 416 pages. Published in 1921.
+2017-05-16: The Name of the Wind by Patrick Rothfuss (***). 722 pages. Published in 2007.
+2017-05-15: The Great Fables Crossover by Bill Willingham & Matthew Sturges (**). 224 pages. Published in 2010.
+2017-05-14: The Glass Universe by Dava Sobel (**). 336 pages. Published in 2016.
+2017-05-10: Native Son by Richard Wright (****). 544 pages. Published in 1940.
+2017-05-08: The Queen of Spades by Alexander Pushkin (***). 35 pages. Published in 1834.
+2017-05-07: Le Père Goriot by HonorÃ© de Balzac (***). 384 pages. Published in 1835.
+2017-05-06: The Selected Works of T. S. Spivet by Reif Larsen (***). 374 pages. Published in 2009.
+2017-05-05: Mirgorod by Nikolai Gogol (**). 275 pages. Published in 1835.
+2017-05-03: Fowl Language by Brian Gordon (***). 126 pages. Published in 2016.
+2017-05-02: Dawn by Octavia E. Butler (*****). 248 pages. Published in 1987.
+2017-05-01: Lunarbaboon by Christopher Grady (****). 126 pages. Published in 2017.
+2017-04-30: Sense and Sensibility by Jane Austen (****). 368 pages. Published in 1811.
+2017-04-29: Norse Mythology by Neil Gaiman (****). 304 pages. Published in 2017.
+2017-04-28: The Old Curiosity Shop by Charles Dickens (**). 608 pages. Published in 1841.
+2017-04-26: Angela's Ashes by Frank McCourt (***). 368 pages. Published in 1996.
+2017-04-21: Jack of Fables: The Big Book of War by Bill Willingham & Matthew Sturges (***). 128 pages. Published in 2009.
+2017-04-21: Call for the Dead by John le CarrÃ© (***). 157 pages. Published in 1961.
+2017-04-20: The Apprentice Fiction of F. Scott Fitzgerald by F. Scott Fitzgerald (**). 184 pages. Published in 1965.
+2017-04-19: Lieutenant Hornblower by C. S. Forester (**). 320 pages. Published in 1952.
+2017-04-17: Jack of Fables: Turning Pages by Bill Willingham & Matthew Sturges (***). 142 pages. Published in 2009.
+2017-04-16: The Handmaid's Tale by Margaret Atwood (*****). 311 pages. Published in 1985.
+2017-04-16: Georges by Alexandre Dumas (***). 336 pages. Published in 1843.
+2017-04-13: Jack of Fables: Americana by Bill Willingham & Matthew Sturges (***). 128 pages. Published in 2008.
+2017-04-11: A Moveable Feast by Ernest Hemingway (***). 256 pages. Published in 1964.
+2017-04-10: Hit Makers: The Science of Popularity in an Age of Distraction by Derek Thompson (*****). 352 pages. Published in 2017.
+2017-04-09: Joy in the Morning by P. G. Wodehouse (***). 272 pages. Published in 1946.
+2017-04-07: The Eustace Diamonds by Anthony Trollope (****). 672 pages. Published in 1873.
+2017-04-05: Jane Eyre by Charlotte BrontÃ« (***). 544 pages. Published in 1847.
+2017-04-02: Peter and Wendy by J. M. Barrie (**). 191 pages. Published in 1911.
+2017-04-01: One Hundred Years of Solitude by Gabriel Garcia Marquez (****). 417 pages. Published in 1967.
+2017-03-28: Death Comes As the End by Agatha Christie (***). 275 pages. Published in 1944.
+2017-03-27: The Impossible Fortress by Jason Rekulak (***). 302 pages. Published in 2017.
+2017-03-26: Word by Word: The Secret Life of Dictionaries by Kory Stamper (*****). 320 pages. Published in 2017.
+2017-03-26: The Count Of Monte Cristo by Alexandre Dumas (*****). 1276 pages. Published in 1845.
+2017-03-20: The Captain's Daughter by Alexander Pushkin (***). 154 pages. Published in 1836.
+2017-03-17: The Bell Jar by Sylvia Plath (****). 288 pages. Published in 1963.
+2017-03-17: A Hero of Our Time by Mikhail Lermontov (**). 174 pages. Published in 1840.
+2017-03-14: The Winter of our Discontent by John Steinbeck (**). 336 pages. Published in 1961.
+2017-03-10: The Bassoon King by Rainn Wilson (***). 336 pages. Published in 2015.
+2017-03-09: Invisible Man by Ralph Ellison (***). 581 pages. Published in 1952.
+2017-03-05: The Man Who Folded Himself by David Gerrold (***). 148 pages. Published in 1973.
+2017-03-04: The Atrocity Archives by Charles Stross (***). 368 pages. Published in 2004.
+2017-03-04: Flapper by Joshua Zeitz (*****). 352 pages. Published in 2007.
+2017-02-27: The Code of the Woosters by P. G. Wodehouse (***). 272 pages. Published in 1938.
+2017-02-23: The Girls of Atomic City by Denise Kiernan (***). 416 pages. Published in 2014.
+2017-02-23: For Whom the Bell Tolls by Ernest Hemingway (*). 480 pages. Published in 1940.
+2017-02-18: Beggars in Spain by Nancy Kress (***). 438 pages. Published in 1993.
+2017-02-12: Phineas Finn by Anthony Trollope (***). 640 pages. Published in 1868.
+2017-02-10: The Proud Tower by Barbara W. Tuchman (***). 608 pages. Published in 1966.
+2017-02-09: Lady Chatterley's Lover by D. H. Lawrence (**). 368 pages. Published in 1928.
+2017-02-01: The Dispatcher by John Scalzi (***). 128 pages. Published in 2016.
+2017-01-31: A Gentleman in Moscow by Amor Towles (***). 480 pages. Published in 2016.
+2017-01-27: Stories of Your Life and Others by Ted Chiang (****). 304 pages. Published in 2002.
+2017-01-27: Mrs Dalloway by Virginia Woolf (**). 216 pages. Published in 1925.
+2017-01-27: Frazzled by Booki Vivat (***). 225 pages. Published in 2016.
+2017-01-25: Titan by Ron Chernow (*****). 832 pages. Published in 1998.
+2017-01-24: All the King's Men by Robert Penn Warren (**). 656 pages. Published in 1946.
+2017-01-21: Barnaby Rudge by Charles Dickens (*). 768 pages. Published in 1841.
 2017-01-13: Go Tell It On The Mountain by James Baldwin (*). 272 pages. Published in 1953.
 2017-01-12: Can You Forgive Her? by Anthony Trollope (****). 848 pages. Published in 1865.
 2017-01-07: Dead Souls by Nikolai Gogol (**). 432 pages. Published in 1842.
