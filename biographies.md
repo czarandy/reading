@@ -16,7 +16,7 @@
 
 ## World Leaders
 * Churchill: Walking with Destiny by Andrew Roberts (*****)
-* Gorbachev: His Life and Times (***)
+* Gorbachev: His Life and Times by William Taubman (***)
 * Napoleon: A Life by Andrew Roberts (***)
 
 ## Mathematicians/Scientists
