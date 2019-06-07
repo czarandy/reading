@@ -37,8 +37,9 @@
 * Leonardo da Vinci by Walter Isaacson (***)
 * Dylan on Dylan by Jonathan Cott (**)
 * Benjamin Franklin: An American Life by Walter Isaacson (*****)
+* The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (**)
 
-## Business
+## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (***)
 * The First Tycoon: The Epic Life of Cornelius Vanderbilt by T. J. Stiles (***)
 * Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (*****)
@@ -46,10 +47,7 @@
 * Elon Musk by Ashlee Vance (***)
 * Steve Jobs by Walter Isaacson (*****)
 * The Innovators: How a Group of Hackers, Geniuses and Geeks Created the Digital Revolution by Walter Isaacson (***)
-
-## Misc
 * Alexander Hamilton by Ron Chernow (****)
-* The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (**)
 
 ## Autobiography/Memoir
 * iWoz by Steve Wozniak (****)
