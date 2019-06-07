@@ -1,4 +1,5 @@
 ## US Presidents
+* Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (***)
 * The Last Founding Father: James Monroe and a Nation's Call to Greatness (****)
 * Jefferson: Architect of American Liberty (***)
 * FDR by Jean Edward Smith (****)
@@ -14,9 +15,9 @@
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****)
 
 ## World Leaders
+* Churchill: Walking with Destiny by Andrew Roberts (*****)
 * Gorbachev: His Life and Times (***)
 * Napoleon: A Life by Andrew Roberts (***)
-* Churchill: Walking with Destiny by Andrew Roberts (*****)
 
 ## Mathematicians/Scientists
 * Marie Curie: A Life by Susan Quinn (***)
