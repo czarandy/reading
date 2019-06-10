@@ -32,6 +32,8 @@
 * Tesla by W. Bernard Carlson (***)
 * Feynman by Jim Ottaviani & Leland Myrick (****)
 * Alan Turing: The Enigma by Andrew Hodges (***)
+* The Man Who Loved Only Numbers: The Story of Paul Erdos and the Search for Mathematical Truth by Paul Hoffman (*****)
+* Genius: The Life and Science of Richard Feynman by James Gleick (*****)
 
 ## Writers/Artists/Musicians
 * Jonathan Swift: The Reluctant Rebel by John Stubbs (***)
