@@ -67,5 +67,5 @@
 * Paddle Your Own Canoe: One Man's Fundamentals for Delicious Living by Nick Offerman (**)
 * How to American: An Immigrant's Guide to Disappointing Your Parents by Jimmy O. Yang (****)
 * Born a Crime by Trevor Noah (****)
-* A Mathematician's Apology by G. H. Hasrdy (***)
+* A Mathematician's Apology by G. H. Hardy (***)
 * You're Never Weird on the Internet (Almost) by Felicia Day (*****)
