@@ -12,6 +12,7 @@
 * Hoover: An Extraordinary Life in Extraordinary Times by Kenneth Whyte (****)
 
 ## Supreme Court
+* First: Sandra Day O'Connor by Evan Thomas (****)
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****)
 
 ## World Leaders
