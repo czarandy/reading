@@ -1,4 +1,5 @@
 ## US Presidents
+* American Lion: Andrew Jackson in the White House by Jon Meacham (**)
 * Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (***)
 * The Last Founding Father: James Monroe and a Nation's Call to Greatness (****)
 * Jefferson: Architect of American Liberty (***)
@@ -10,7 +11,6 @@
 * Washington: A Life by Ron Chernow (****)
 * Grant by Ron Chernow (*****)
 * Hoover: An Extraordinary Life in Extraordinary Times by Kenneth Whyte (****)
-* American Lion: Andrew Jackson in the White House by Jon Meacham (**)
 
 ## Supreme Court
 * First: Sandra Day O'Connor by Evan Thomas (****)
