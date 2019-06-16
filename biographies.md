@@ -10,6 +10,7 @@
 * Washington: A Life by Ron Chernow (****)
 * Grant by Ron Chernow (*****)
 * Hoover: An Extraordinary Life in Extraordinary Times by Kenneth Whyte (****)
+* American Lion: Andrew Jackson in the White House by Jon Meacham (**)
 
 ## Supreme Court
 * First: Sandra Day O'Connor by Evan Thomas (****)
