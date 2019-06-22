@@ -13,6 +13,7 @@
 * Richard Nixon: The Life by John A. Farrell (****)
 
 ## Supreme Court
+* Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (*****)
 * First: Sandra Day O'Connor by Evan Thomas (****)
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****)
 
