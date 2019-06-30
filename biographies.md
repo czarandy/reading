@@ -55,6 +55,7 @@
 * Alexander Hamilton by Ron Chernow (****)
 
 ## Autobiography/Memoir
+* Persepolis by Marjane Satrapi (*****)
 * iWoz by Steve Wozniak (****)
 * Angela's Asheds by Frank McCourt (***)
 * A Moveable Feast by Ernest Hemingway (***)
