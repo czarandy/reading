@@ -10,6 +10,7 @@
 * Hoover: An Extraordinary Life in Extraordinary Times by Kenneth Whyte (****)
 * FDR by Jean Edward Smith (****)
 * Truman by David McCullough (*****)
+* The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (***)
 * Richard Nixon: The Life by John A. Farrell (****)
 
 ## Supreme Court
