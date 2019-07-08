@@ -19,23 +19,23 @@
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****)
 
 ## World Leaders
+* Napoleon: A Life by Andrew Roberts (***)
 * Churchill: Walking with Destiny by Andrew Roberts (*****)
 * Gorbachev: His Life and Times by William Taubman (***)
-* Napoleon: A Life by Andrew Roberts (***)
 
 ## Mathematicians/Scientists
-* Marie Curie: A Life by Susan Quinn (***)
-* The Pope of Physics: Enrico Fermi and the Birth of the Atomic Age by Gino Segre & Bettina Hoerlin (***)
-* A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (****)
-* American Prometheus: The Triumph and Tragedy of J. Robert Oppenheimer by Kai Bird & Martin J. Sherwin (**)
-* Einstein: His Life and Universe by Walter Isaacson (*****)
 * Newton and the Counterfeiter by Thomas Levenson (****)
-* The Strangest Man: the Hidden Life of Paul Dirac by Graham Farmelo (****)
-* The Man Who Knew Infinity: A Life of the Genius Ramanujan by Robert Kanigel (***) 
 * Tesla by W. Bernard Carlson (***)
-* Feynman by Jim Ottaviani & Leland Myrick (****)
+* Marie Curie: A Life by Susan Quinn (***)
+* Einstein: His Life and Universe by Walter Isaacson (*****)
+* The Man Who Knew Infinity: A Life of the Genius Ramanujan by Robert Kanigel (***) 
+* The Pope of Physics: Enrico Fermi and the Birth of the Atomic Age by Gino Segre & Bettina Hoerlin (***)
+* The Strangest Man: the Hidden Life of Paul Dirac by Graham Farmelo (****)
+* American Prometheus: The Triumph and Tragedy of J. Robert Oppenheimer by Kai Bird & Martin J. Sherwin (**)
 * Alan Turing: The Enigma by Andrew Hodges (***)
 * The Man Who Loved Only Numbers: The Story of Paul Erdos and the Search for Mathematical Truth by Paul Hoffman (*****)
+* A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (****)
+* Feynman by Jim Ottaviani & Leland Myrick (****)
 * Genius: The Life and Science of Richard Feynman by James Gleick (*****)
 
 ## Writers/Artists/Musicians
