@@ -19,6 +19,7 @@
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****)
 
 ## World Leaders
+* The Life of Elizabeth I by Alison Weir (****)
 * Napoleon: A Life by Andrew Roberts (***)
 * Churchill: Walking with Destiny by Andrew Roberts (*****)
 * Gorbachev: His Life and Times by William Taubman (***)
