@@ -15,6 +15,7 @@
 
 ## Supreme Court
 * Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (*****)
+* Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (****)
 * First: Sandra Day O'Connor by Evan Thomas (****)
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****)
 
