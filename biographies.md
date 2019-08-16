@@ -23,6 +23,7 @@
 * The Life of Elizabeth I by Alison Weir (****)
 * Catherine the Great: Portrait of a Woman by Robert K. Massie (****)
 * Napoleon: A Life by Andrew Roberts (***)
+* Bolívar: American Liberator by Marie Arana (***)
 * Churchill: Walking with Destiny by Andrew Roberts (*****)
 * Gorbachev: His Life and Times by William Taubman (***)
 
