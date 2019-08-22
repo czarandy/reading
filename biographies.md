@@ -20,6 +20,7 @@
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (****)
 
 ## World Leaders
+* Caesar: Life of a Colossus by Adrian Goldsworthy (***)
 * The Life of Elizabeth I by Alison Weir (****)
 * Catherine the Great: Portrait of a Woman by Robert K. Massie (****)
 * Napoleon: A Life by Andrew Roberts (***)
