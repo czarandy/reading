@@ -11,6 +11,7 @@
 * FDR by Jean Edward Smith (****)
 * Truman by David McCullough (*****)
 * The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (***)
+* The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (***)
 * Richard Nixon: The Life by John A. Farrell (****)
 
 ## Supreme Court
