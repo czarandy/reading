@@ -22,6 +22,7 @@
 
 ## World Leaders
 * Caesar: Life of a Colossus by Adrian Goldsworthy (***)
+* Cleopatra: A Life by Stacy Schiff (***)
 * The Life of Elizabeth I by Alison Weir (****)
 * Catherine the Great: Portrait of a Woman by Robert K. Massie (****)
 * Napoleon: A Life by Andrew Roberts (***)
