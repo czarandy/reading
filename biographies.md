@@ -55,6 +55,7 @@
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (***)
 * The First Tycoon: The Epic Life of Cornelius Vanderbilt by T. J. Stiles (***)
+* Andrew Carnegie by David Nasaw (***)
 * Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (*****)
 * The Everything Store: Jeff Bezos and the Age of Amazon by Brad Stone (***)
 * Elon Musk by Ashlee Vance (***)
