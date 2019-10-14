@@ -68,7 +68,7 @@
 ## Autobiography/Memoir
 * Persepolis by Marjane Satrapi (\*\*\*\*\*)
 * iWoz by Steve Wozniak (\*\*\*\*)
-* Angela's Asheds by Frank McCourt (\*\*\*)
+* Angela's Ashes by Frank McCourt (\*\*\*)
 * A Moveable Feast by Ernest Hemingway (\*\*\*)
 * The Bassoon King by Rainn Wilson (\*\*\*)
 * Love and Math by Edward Frenkel (\*\*\*)
@@ -144,7 +144,7 @@
 * [1899-1961] A Moveable Feast by Ernest Hemingway (\*\*\*)
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
 * [1928-2016] Night by Elie Wiesel (\*\*\*\*)
-* [1930-2009] Angela's Asheds by Frank McCourt (\*\*\*)
+* [1930-2009] Angela's Ashes by Frank McCourt (\*\*\*)
 * [1942-present] Heading South , Looking North by Ariel Dorfman (\*\*\*)
 * [1948-present] Readling Lolita in Tehran by Azar Nafisi (\*\*\*)
 * [1950-present] iWoz by Steve Wozniak (\*\*\*\*)
