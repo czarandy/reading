@@ -1,3 +1,102 @@
+2019-12-29: Today I Am Carey by Martin L. Shoemaker (****). 336 pages. Published in 2019.
+2019-12-26: The Long Way to a Small, Angry Planet by Becky Chambers (**). 518 pages. Published in 2014.
+2019-12-25: The Last Time I Lied by Riley Sager (****). 384 pages. Published in 2018.
+2019-12-22: An Absolutely Remarkable Thing by Hank Green (*****). 352 pages. Published in 2018.
+2019-12-20: Good Deeds Gone Unpunished by Rich Burlew (***). 159 pages. Published in 2018.
+2019-12-18: The Secret History by Donna Tartt (***). 559 pages. Published in 1992.
+2019-12-15: Scythe by Neal Shusterman (***). 435 pages. Published in 2016.
+2019-12-15: Glasshouse by Charles Stross (****). 333 pages. Published in 2006.
+2019-12-13: The Immortal Life of Henrietta Lacks by Rebecca Skloot (***). 370 pages. Published in 2010.
+2019-12-13: A Darker Shade of Magic by V. E. Schwab (***). 400 pages. Published in 2015.
+2019-12-10: Dear Wife by Kimberley Belle (***). 384 pages. Published in 2019.
+2019-12-09: Anyone by Charles Soule (*****). 400 pages. Published in 2019.
+2019-12-07: Open Borders: The Science and Ethics of Immigration by Bryan Caplan (*****). 256 pages. Published in 2019.
+2019-12-06: Vengeful by V. E. Schwab (*****). 462 pages. Published in 2018.
+2019-11-29: The Strange and Beautiful Sorrows of Ava Lavender by Leslye Walton (***). 301 pages. Published in 2014.
+2019-11-25: User Friendly: How the Hidden Rules of Design Are Changing the Way We Live, Work, and Play by Cliff Kuang & Robert Fabricant (***). 416 pages. Published in 2019.
+2019-11-23: The Sol Majestic by Ferrett Steinmetz (*). 384 pages. Published in 2019.
+2019-11-23: Coolidge: An American Enigma by Robert Sobel (***). 462 pages. Published in 1998.
+2019-11-21: You Know Me Al by Ring Lardner (***). 224 pages. Published in 1914.
+2019-11-19: We Have Always Lived in the Castle by Shirley Jackson (***). 146 pages. Published in 1962.
+2019-11-18: The Starless Sea by Erin Morgenstern (**). 512 pages. Published in 2019.
+2019-11-13: Gilead by Marilynne Robinson (*). 247 pages. Published in 2004.
+2019-11-11: The Woman in the Dunes by Kobo Abe (*). 241 pages. Published in 1962.
+2019-11-11: Pumpkinheads by Rainbow Rowell (***). 209 pages. Published in 2019.
+2019-11-09: Grand Union: Stories by Zadie Smith (**). 246 pages. Published in 2019.
+2019-11-06: Nothing to See Here by Kevin Wilson (****). 272 pages. Published in 2019.
+2019-11-04: Don't Even Breathe by Keith Houghton (***). 304 pages. Published in 2019.
+2019-11-02: Number the Stars by Lois Lowry (****). 137 pages. Published in 1989.
+2019-11-01: The Grammarians by Cathleen Schine (****). 272 pages. Published in 2019.
+2019-10-30: Talk on the Wild Side: The Untameable Nature of Language by Lane Greene (***). 240 pages. Published in 2018.
+2019-10-28: Rework by Jason Fried & David Heinemeier Hansson (*****). 279 pages. Published in 2010.
+2019-10-28: Fifth Business by Robertson Davies (***). 252 pages. Published in 1970.
+2019-10-22: The Dutch House by Ann Patchett (****). 352 pages. Published in 2019.
+2019-10-18: The Song of Achilles by Madeline Miller (****). 352 pages. Published in 2011.
+2019-10-14: Andrew Carnegie by David Nasaw (***). 2006 pages. Published in 896.
+2019-10-13: The Great Courses: The Story of Human Language by John McWhorter (****). 547 pages. Published in 2004.
+2019-10-13: Because Internet: Understanding the New Rules of Language by Gretchen McCulloch (****). 335 pages. Published in 2019.
+2019-10-08: Fledgling by Molly Harper (****). 267 pages. Published in 2019.
+2019-10-06: Eternals by Neil Gaiman (****). 256 pages. Published in 2006.
+2019-10-06: Circe by Madeline Miller (*****). 393 pages. Published in 2018.
+2019-10-06: Changeling by Molly Harper (*****). 271 pages. Published in 2018.
+2019-10-05: The Elephant in the Brain by Kevin Simler & Robin Hanson (*****). 408 pages. Published in 2017.
+2019-09-27: Uncle John's Actual and Factual Bathroom Reader by Bathroom Readers' Institute (***). 512 pages. Published in 2018.
+2019-09-26: The Penelopiad by Margaret Atwood (****). 198 pages. Published in 2005.
+2019-09-24: The Robber Bride by Margaret Atwood (***). 528 pages. Published in 1993.
+2019-09-19: How To: Absurd Scientific Advice for Common Real-World Problems by Randall Munroe (****). 304 pages. Published in 2019.
+2019-09-16: The Intelligence Trap: Why Smart People Make Dumb Mistakes by David Robson (***). 336 pages. Published in 2019.
+2019-09-13: The Testaments by Margaret Atwood (*****). 432 pages. Published in 2019.
+2019-09-11: Talking to Strangers: What We Should Know about the People We Don't Know by Malcolm Gladwell (****). 400 pages. Published in 2019.
+2019-09-08: Infinite Powers: How Calculus Reveals the Secrets of the Universe by Steven Strogatz (****). 360 pages. Published in 2019.
+2019-09-07: Selected Stories by Saki (***). 354 pages. Published in 1924.
+2019-09-06: Indistractable by Nir Eyal (****). 300 pages. Published in 2019.
+2019-09-03: Empire Falls by Richard Russo (***). 483 pages. Published in 2001.
+2019-08-29: Cleopatra: A Life by Stacy Schiff (***). 302 pages. Published in 2010.
+2019-08-28: The Help by Kathryn Stockett (****). 465 pages. Published in 2009.
+2019-08-27: Means of Ascent by Robert A. Caro (***). 592 pages. Published in 1990.
+2019-08-26: The Joke by Milan Kundera (**). 371 pages. Published in 1967.
+2019-08-26: A House for Mr. Biswas by V. S. Naipaul (*). 623 pages. Published in 1961.
+2019-08-23: The Bookish Life of Nina Hill by Abbi Waxman (***). 352 pages. Published in 2019.
+2019-08-21: The Tyranny of Metrics by Jerry Z. Muller (***). 240 pages. Published in 2017.
+2019-08-21: Caesar: Life of a Colossus by Adrian Goldsworthy (***). 583 pages. Published in 2006.
+2019-08-18: Drive Your Plow Over the Bones of the Dead by Olga Tokarczuk (**). 288 pages. Published in 2009.
+2019-08-15: Bolívar: American Liberator by Marie Arana (***). 624 pages. Published in 2013.
+2019-08-12: The Raven Tower by Ann Leckie (****). 416 pages. Published in 2019.
+2019-08-10: Semicolon: The Past, Present, and Future of a Misunderstood Mark by Cecelia Watson (***). 224 pages. Published in 2019.
+2019-08-09: The Most Fun We Ever Had by Claire Lombardo (*****). 532 pages. Published in 2019.
+2019-08-05: Commonwealth by Ann Patchett (*****). 322 pages. Published in 2016.
+2019-08-02: Dust by Elizabeth Bear (**). 342 pages. Published in 2007.
+2019-08-01: Drive-Thru Dreams: A Journey Through the Heart of America's Fast-Food Kingdom by Adam Chandler (***). 288 pages. Published in 2019.
+2019-07-28: Zero Sum Game by S. L. Huang (***). 336 pages. Published in 2014.
+2019-07-25: Catherine the Great: Portrait of a Woman by Robert K. Massie (****). 625 pages. Published in 2011.
+2019-07-20: The Philosopher's War by Tom Miller (****). 416 pages. Published in 2019.
+2019-07-15: Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (****). 592 pages. Published in 2019.
+2019-07-13: The Life of Elizabeth I by Alison Weir (****). 562 pages. Published in 1996.
+2019-07-12: The Seven Husbands of Evelyn Hugo by Taylor Jenkins Reid (*****). 388 pages. Published in 2017.
+2019-07-07: The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (***). 882 pages. Published in 1982.
+2019-07-03: Goodbye Stranger by Rebecca Stead (***). 289 pages. Published in 2015.
+2019-07-02: Ask Again, Yes by Mary Beth Keane (*****). 400 pages. Published in 2019.
+2019-06-30: Page by Paige by Laura Lee Gulledge (***). 199 pages. Published in 2011.
+2019-06-29: Persepolis by Marjane Satrapi (*****). 341 pages. Published in 2003.
+2019-06-28: Tuck Everlasting by Nathalie Babbitt (****). 139 pages. Published in 1975.
+2019-06-27: Emily of New Moon by Lucy Maude Montgomery (***). 339 pages. Published in 1923.
+2019-06-26: Range: Why Generalists Triumph in a Specialized World by David Epstein (****). 352 pages. Published in 2019.
+2019-06-26: Giant Days, Vol. 10 by John Allison (*****). 113 pages. Published in 2019.
+2019-06-23: Dark Matter by Blake Crouch (***). 342 pages. Published in 2016.
+2019-06-22: Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (*****). 448 pages. Published in 2018.
+2019-06-22: The Rules of Attraction by Bret Easton Ellis (**). 283 pages. Published in 1987.
+2019-06-18: Success and Luck: Good Fortune and the Myth of Meritocracy by Robert H. Frank (***). 208 pages. Published in 2016.
+2019-06-16: Recursion by Blake Crouch (*****). 336 pages. Published in 2019.
+2019-06-16: American Lion: Andrew Jackson in the White House by Jon Meacham (**). 483 pages. Published in 2008.
+2019-06-14: The Silkworm by Robert Galbraith (***). 455 pages. Published in 2014.
+2019-06-13: The Return of the Native by Thomas Hardy (**). 448 pages. Published in 1878.
+2019-06-12: How Not to Be Wrong: The Power of Mathematical Thinking by Jordan Ellenberg (*****). 480 pages. Published in 2014.
+2019-06-09: First: Sandra Day O'Connor by Evan Thomas (****). 496 pages. Published in 2019.
+2019-06-08: The Seven or Eight Deaths of Stella Fortuna by Juliet Grames (***). 464 pages. Published in 2019.
+2019-06-06: Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (***). 448 pages. Published in 2008.
+2019-06-05: Magic for Liars by Sarah Gailey (***). 336 pages. Published in 2019.
+2019-06-05: Cribsheet: A Data-Driven Guide to Better, More Relaxed Parenting, from Birth to Preschool by Emily Oster (***). 352 pages. Published in 2019.
+2019-06-01: Churchill: Walking with Destiny by Andrew Roberts (*****). 1105 pages. Published in 2018.
 2019-05-30: Exhalation: Stories by Ted Chiang (****). 352 pages. Published in 2019.
 2019-05-27: Peak: Secrets from the New Science of Expertise by K. Anders Ericsson (****). 304 pages. Published in 2016.
 2019-05-24: Lady Audley's Secret by Mary Elizabeth Braddon (***). 455 pages. Published in 1862.
