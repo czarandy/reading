@@ -65,7 +65,8 @@
 * Steve Jobs by Walter Isaacson (\*\*\*\*\*)
 * The Innovators: How a Group of Hackers, Geniuses and Geeks Created the Digital Revolution by Walter Isaacson (\*\*\*)
 * Alexander Hamilton by Ron Chernow (\*\*\*\*)
-
+* The Fish That Ate the Whale: The Life and Times of America's Banana King by Rich Cohen (\*\*\*)
+ 
 ## Autobiography/Memoir
 * Persepolis by Marjane Satrapi (\*\*\*\*\*)
 * iWoz by Steve Wozniak (\*\*\*\*)
@@ -120,6 +121,7 @@
 * [1872-1933] Coolidge: An American Enigma by Robert Sobel (\*\*\*)
 * [1874-1964] Hoover: An Extraordinary Life in Extraordinary Times by Kenneth Whyte (\*\*\*\*)
 * [1874-1965] Churchill: Walking with Destiny by Andrew Roberts (\*\*\*\*\*)
+* [1877-1961] [Samuel Zemurray] The Fish That Ate the Whale: The Life and Times of America's Banana King by Rich Cohen (\*\*\*)
 * [1879-1955] Einstein: His Life and Universe by Walter Isaacson (\*\*\*\*\*)
 * [1882-1945] FDR by Jean Edward Smith (\*\*\*\*)
 * [1884-1972] Truman by David McCullough (\*\*\*\*\*)
