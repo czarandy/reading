@@ -66,6 +66,7 @@
 * The Innovators: How a Group of Hackers, Geniuses and Geeks Created the Digital Revolution by Walter Isaacson (\*\*\*)
 * Alexander Hamilton by Ron Chernow (\*\*\*\*)
 * The Fish That Ate the Whale: The Life and Times of America's Banana King by Rich Cohen (\*\*\*)
+* Barnum: An American Life by Robert Wilson (\*\*\*\*)
  
 ## Autobiography/Memoir
 * Persepolis by Marjane Satrapi (\*\*\*\*\*)
@@ -110,6 +111,7 @@
 * [1783-1830] Bolívar: American Liberator by Marie Arana (\*\*\*)
 * [1794-1877] The First Tycoon: The Epic Life of Cornelius Vanderbilt by T. J. Stiles (\*\*\*)
 * [1795-1849] Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
+* [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * [1822-1885] Grant by Ron Chernow (\*\*\*\*\*)
 * [1835-1919] Andrew Carnegie by David Nasaw (\*\*\*)
 * [1837-1915] [James Murray] The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (\*\*) 
