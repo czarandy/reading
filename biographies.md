@@ -49,6 +49,7 @@
 * Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 
 ## Writers/Artists/Musicians
+* Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
 * Jonathan Swift: The Reluctant Rebel by John Stubbs (\*\*\*)
 * Leonardo da Vinci by Walter Isaacson (\*\*\*)
 * Dylan on Dylan by Jonathan Cott (\*\*)
@@ -136,6 +137,7 @@
 * [1913-1994] Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
 * [1913-1996] The Man Who Loved Only Numbers: The Story of Paul Erdos and the Search for Mathematical Truth by Paul Hoffman (\*\*\*\*\*)
 * [1916-2001] A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (\*\*\*\*)
+* [1916-1965] * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
 * [1918-1988] Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*) / Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-present] Gorbachev: His Life and Times by William Taubman (\*\*\*)
