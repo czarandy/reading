@@ -70,6 +70,7 @@
 * Barnum: An American Life by Robert Wilson (\*\*\*\*)
  
 ## Autobiography/Memoir
+* Life Among the Savages by Shirley Jackson (\*\*\*\*)
 * Persepolis by Marjane Satrapi (\*\*\*\*\*)
 * iWoz by Steve Wozniak (\*\*\*\*)
 * Angela's Ashes by Frank McCourt (\*\*\*)
@@ -137,7 +138,7 @@
 * [1913-1994] Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
 * [1913-1996] The Man Who Loved Only Numbers: The Story of Paul Erdos and the Search for Mathematical Truth by Paul Hoffman (\*\*\*\*\*)
 * [1916-2001] A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (\*\*\*\*)
-* [1916-1965] * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
+* [1916-1965] Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
 * [1918-1988] Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*) / Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-present] Gorbachev: His Life and Times by William Taubman (\*\*\*)
@@ -150,6 +151,7 @@
 # Autobiography/Memoir by DOB
 * [1877-1947] A Mathematician's Apology by G. H. Hardy (\*\*\*)
 * [1899-1961] A Moveable Feast by Ernest Hemingway (\*\*\*)
+* [1916-1965] Life Among the Savages by Shirley Jackson (\*\*\*\*)
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
 * [1928-2016] Night by Elie Wiesel (\*\*\*\*)
 * [1930-2009] Angela's Ashes by Frank McCourt (\*\*\*)
