@@ -48,6 +48,7 @@
 * A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (\*\*\*\*)
 * Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*)
 * Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
+* UNIX: A History and a Memoir by Brian W. Kernighan (\*\*\*\*\*)
 
 ## Writers/Artists/Musicians
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -157,6 +158,7 @@
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
 * [1928-2016] Night by Elie Wiesel (\*\*\*\*)
 * [1930-2009] Angela's Ashes by Frank McCourt (\*\*\*)
+* [1942-present] UNIX: A History and a Memoir by Brian W. Kernighan (\*\*\*\*\*)
 * [1942-present] Heading South , Looking North by Ariel Dorfman (\*\*\*)
 * [1948-present] Readling Lolita in Tehran by Azar Nafisi (\*\*\*)
 * [1950-present] iWoz by Steve Wozniak (\*\*\*\*)
