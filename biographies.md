@@ -8,6 +8,7 @@
 * John Quincy Adams: Militant Spirit by James Traub (\*\*\*\*)
 * American Lion: Andrew Jackson in the White House by Jon Meacham (\*\*)
 * Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
+* Lincoln by David Herbert Donald (\*\*\*\*\*)
 * Grant by Ron Chernow (\*\*\*\*\*)
 * Woodrow Wilson: A Biography by John Milton Cooper Jr. (\*\*\*)
 * Coolidge: An American Enigma by Robert Sobel (\*\*\*)
@@ -17,7 +18,6 @@
 * The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (\*\*\*)
 * The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
 * Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
-* Lincoln by David Herbert Donald (\*\*\*\*\*)
 
 ## Supreme Court
 * Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (\*\*\*\*\*)
