@@ -17,6 +17,7 @@
 * The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (\*\*\*)
 * The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
 * Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
+* Lincoln by David Herbert Donald (\*\*\*\*\*)
 
 ## Supreme Court
 * Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (\*\*\*\*\*)
@@ -116,6 +117,7 @@
 * [1783-1830] Bolívar: American Liberator by Marie Arana (\*\*\*)
 * [1794-1877] The First Tycoon: The Epic Life of Cornelius Vanderbilt by T. J. Stiles (\*\*\*)
 * [1795-1849] Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
+* [1809-1865] Lincoln by David Herbert Donald (\*\*\*\*\*)
 * [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * [1822-1885] Grant by Ron Chernow (\*\*\*\*\*)
 * [1835-1919] Andrew Carnegie by David Nasaw (\*\*\*)
