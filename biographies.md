@@ -60,6 +60,7 @@
 * Benjamin Franklin: An American Life by Walter Isaacson (\*\*\*\*\*)
 * The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (\*\*)
 * The Man in the Glass House: Philip Johnson, Architect of the Modern Century by Mark Lamster (\*\*\*\*)
+* Who is Alex Trebek by Lisa Roga (\*\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -152,6 +153,7 @@
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-present] Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * [1933-present] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*)
+* [1940-present] Who is Alex Trebek by Lisa Roga (\*\*\*\*)
 * [1941-present] Dylan on Dylan by Jonathan Cott (\*\*)
 * [1955-2011] Steve Jobs by Walter Isaacson (\*\*\*\*\*)
 * [1964-present] The Everything Store: Jeff Bezos and the Age of Amazon by Brad Stone (\*\*\*)
