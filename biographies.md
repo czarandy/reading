@@ -74,6 +74,7 @@
 * Alexander Hamilton by Ron Chernow (\*\*\*\*)
 * The Fish That Ate the Whale: The Life and Times of America's Banana King by Rich Cohen (\*\*\*)
 * Barnum: An American Life by Robert Wilson (\*\*\*\*)
+* Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
  
 ## Autobiography/Memoir
 * Life Among the Savages by Shirley Jackson (\*\*\*\*)
@@ -123,6 +124,7 @@
 * [1809-1865] Lincoln by David Herbert Donald (\*\*\*\*\*)
 * [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * [1822-1885] Grant by Ron Chernow (\*\*\*\*\*)
+* [1826-1877] Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
 * [1835-1919] Andrew Carnegie by David Nasaw (\*\*\*)
 * [1837-1915] [James Murray] The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (\*\*) 
 * [1839-1937] Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (\*\*\*\*\*)
