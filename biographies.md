@@ -61,6 +61,7 @@
 * The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (\*\*)
 * The Man in the Glass House: Philip Johnson, Architect of the Modern Century by Mark Lamster (\*\*\*\*)
 * Who is Alex Trebek by Lisa Roga (\*\*\*\*)
+* Diderot and the Art of Thinking Freely by Andrew S. Curran (\*\*\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -108,6 +109,7 @@
 * [1667-1745] Jonathan Swift: The Reluctant Rebel by John Stubbs (\*\*\*)
 * [1672-1725] Peter the Great: His Life and World by Robert K. Massie (\*\*\*)
 * [1706-1790] Benjamin Franklin: An American Life by Walter Isaacson (\*\*\*\*\*)
+* [1713-1784] Diderot and the Art of Thinking Freely by Andrew S. Curran (\*\*\*\*\*)
 * [1729-1796] Catherine the Great: Portrait of a Woman by Robert K. Massie (\*\*\*\*)
 * [1732-1799] Washington: A Life by Ron Chernow (\*\*\*\*)
 * [1735-1826] John Adams by David McCullough (\*\*\*\*\*)
