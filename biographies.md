@@ -54,6 +54,7 @@
 * Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*)
 * Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 * UNIX: A History and a Memoir by Brian W. Kernighan (\*\*\*\*\*)
+* Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 
 ## Writers/Artists/Musicians/Architects
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -158,6 +159,7 @@
 * [1916-2001] A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (\*\*\*\*)
 * [1916-1965] Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
 * [1918-1988] Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*) / Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
+* [1920-1957] Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-present] Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * [1933-present] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*)
