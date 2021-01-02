@@ -82,6 +82,7 @@
 * Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
  
 ## Autobiography/Memoir
+* I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
 * Life Among the Savages by Shirley Jackson (\*\*\*\*)
 * Persepolis by Marjane Satrapi (\*\*\*\*\*)
 * iWoz by Steve Wozniak (\*\*\*\*)
@@ -172,6 +173,7 @@
 # Autobiography/Memoir by DOB
 * [1877-1947] A Mathematician's Apology by G. H. Hardy (\*\*\*)
 * [1899-1961] A Moveable Feast by Ernest Hemingway (\*\*\*)
+* [1916-2006] I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
 * [1916-1965] Life Among the Savages by Shirley Jackson (\*\*\*\*)
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
 * [1928-2016] Night by Elie Wiesel (\*\*\*\*)
