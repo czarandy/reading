@@ -27,6 +27,7 @@
 * Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (\*\*\*\*)
 * First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*)
+* Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
 
 ## World Leaders
 * Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -163,7 +164,7 @@
 * [1920-1957] Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-present] Gorbachev: His Life and Times by William Taubman (\*\*\*)
-* [1933-present] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*)
+* [1933-present] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*) / Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
 * [1940-present] Who is Alex Trebek by Lisa Roga (\*\*\*\*)
 * [1941-present] Dylan on Dylan by Jonathan Cott (\*\*)
 * [1955-2011] Steve Jobs by Walter Isaacson (\*\*\*\*\*)
