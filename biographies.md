@@ -26,6 +26,7 @@
 ## Supreme Court
 * Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (\*\*\*\*\*)
 * Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (\*\*\*\*)
+* Louis D. Brandeis: A Life by Melvin I. Urofsky (\*\*\*\*)
 * First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*)
 * Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
@@ -139,6 +140,7 @@
 * [1839-1937] Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (\*\*\*\*\*)
 * [1841-1935] Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (\*\*\*\*)
 * [1856-1943] Tesla by W. Bernard Carlson (\*\*\*)
+* [1856-1941] Louis D. Brandeis: A Life by Melvin I. Urofsky (\*\*\*\*)
 * [1856-1924] Woodrow Wilson: A Biography by John Milton Cooper Jr. (\*\*\*)
 * [1858-1919] The Rise of Theodore Roosevelt by Edmund Morris (\*\*\*\*\*) / Theodore Rex by Edmund Morris (\*\*\*\*\*) / Colonel Roosevel by Edmund Morris (\*\*\*\*)
 * [1867-1943] The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
