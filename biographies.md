@@ -33,6 +33,7 @@
 
 ## World Leaders
 * Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
+* Augustus: First Emperor of Rome (\*\*\*)
 * Cleopatra: A Life by Stacy Schiff (\*\*\*)
 * The Life of Elizabeth I by Alison Weir (\*\*\*\*)
 * Peter the Great: His Life and World by Robert K. Massie (\*\*\*)
@@ -110,7 +111,8 @@
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
-* [69 DB-30 BC] Cleopatra: A Life by Stacy Schiff (\*\*\*)
+* [69 BC-30 BC] Cleopatra: A Life by Stacy Schiff (\*\*\*)
+* [63 BC-24 AD] Augustus: First Emperor of Rome (\*\*\*)
 * [1452-1519] Leonardo da Vinci by Walter Isaacson (\*\*\*)
 * [1533-1603] The Life of Elizabeth I by Alison Weir (\*\*\*\*)
 * [1643-1727] Newton and the Counterfeiter by Thomas Levenson (\*\*\*\*)
