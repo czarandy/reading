@@ -59,6 +59,7 @@
 * Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 * UNIX: A History and a Memoir by Brian W. Kernighan (\*\*\*\*\*)
 * Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
+* Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (\*\*\*)
 
 ## Writers/Artists/Musicians/Architects
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -160,6 +161,7 @@
 * [1901-1954] The Pope of Physics: Enrico Fermi and the Birth of the Atomic Age by Gino Segre & Bettina Hoerlin (\*\*\*)
 * [1902-1984] The Strangest Man: the Hidden Life of Paul Dirac by Graham Farmelo (\*\*\*\*)
 * [1904-1967] American Prometheus: The Triumph and Tragedy of J. Robert Oppenheimer by Kai Bird & Martin J. Sherwin (\*\*)
+* [1906-1978] Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (\*\*\*)
 * [1906-2005] The Man in the Glass House: Philip Johnson, Architect of the Modern Century by Mark Lamster (\*\*\*\*)
 * [1908-1973] The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (\*\*\*) / The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
 * [1912-1954] Alan Turing: The Enigma by Andrew Hodges (\*\*\*)
