@@ -61,6 +61,7 @@
 * UNIX: A History and a Memoir by Brian W. Kernighan (\*\*\*\*\*)
 * Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 * Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (\*\*\*)
+* Rush: Revolution, Madness, and the Visionary Doctor Who Became a Founding Father by Stephen Fried (\*\*\*)
 
 ## Writers/Artists/Musicians/Architects
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -127,6 +128,7 @@
 * [1732-1799] Washington: A Life by Ron Chernow (\*\*\*\*)
 * [1735-1826] John Adams by David McCullough (\*\*\*\*\*)
 * [1743-1826] Jefferson: Architect of American Liberty (\*\*\*)
+* [1745-1813] Rush: Revolution, Madness, and the Visionary Doctor Who Became a Founding Father by Stephen Fried (\*\*\*)
 * [1755-1835] Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (\*\*\*\*\*)
 * [1757-1804] Alexander Hamilton by Ron Chernow (\*\*\*\*)
 * [1758-1831] The Last Founding Father: James Monroe and a Nation's Call to Greatness (\*\*\*\*)
