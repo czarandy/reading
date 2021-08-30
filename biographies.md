@@ -30,6 +30,7 @@
 * First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*)
 * Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
+* The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
 
 ## World Leaders
 * Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -142,6 +143,7 @@
 * [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * [1822-1885] Grant by Ron Chernow (\*\*\*\*\*)
 * [1826-1877] Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
+* [1833-1911] The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
 * [1835-1919] Andrew Carnegie by David Nasaw (\*\*\*)
 * [1837-1915] [James Murray] The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (\*\*) 
 * [1839-1937] Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (\*\*\*\*\*)
