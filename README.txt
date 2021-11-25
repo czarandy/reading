@@ -1,3 +1,192 @@
+2021-11-21: Thrawn: Alliances by Timothy Zahn (***). 342 pages. Published in 2018.
+2021-11-16: Old New York by Edith Wharton (****). 315 pages. Published in 1924.
+2021-11-13: The Code Breaker: Jennifer Doudna, Gene Editing, and the Future of the Human Race by Walter Isaacson (***). 536 pages. Published in 2021.
+2021-11-13: One Two Three... Infinity: Facts and Speculations of Science by George Gamow (***). 340 pages. Published in 1947.
+2021-11-11: Thrawn by Timothy Zahn (*****). 427 pages. Published in 2017.
+2021-11-10: As Good as Dead by Holly Jackson (*). 464 pages. Published in 2021.
+2021-11-04: Rationality: What It Is, Why It Seems Scarce, Why It Matters by Steven Pinker (**). 432 pages. Published in 2021.
+2021-10-31: Darth Plagueis by James Luceno (**). 379 pages. Published in 2012.
+2021-10-29: A Line to Kill by Anthony Horowitz (****). 384 pages. Published in 2021.
+2021-10-13: Crossroads by Jonathan Franzen (****). 592 pages. Published in 2021.
+2021-10-02: The Last Graduate by Naomi Novik (***). 400 pages. Published in 2021.
+2021-09-30: March Violets by Philip Kerr (***). 245 pages. Published in 1989.
+2021-09-28: The Deep End by Jeff Kinney (****). 217 pages. Published in 2020.
+2021-09-27: Dynasty of Evil by Drew Karpyshyn (***). 296 pages. Published in 2009.
+2021-09-26: An Imaginary Tale: The Story of the Square Root of Minus One by Paul J. Nahin (*****). 267 pages. Published in 1998.
+2021-09-24: Rule of Two by Drew Karpyshyn (***). 318 pages. Published in 2007.
+2021-09-22: Path of Destruction by Drew Karpyshyn (****). 324 pages. Published in 2006.
+2021-09-18: Everyone in This Room Will Someday Be Dead by Emily Austin (****). 256 pages. Published in 2021.
+2021-09-17: The Grapes of Wrath by John Steinbeck (***). 479 pages. Published in 1939.
+2021-09-16: The Second Kind of Impossible: The Extraordinary Quest for a New Form of Matter by Paul J. Steinhardt (****). 400 pages. Published in 2019.
+2021-09-14: Mrs. Perkins's Electric Quilt: And Other Intriguing Stories of Mathematical Physics by Paul J. Nahin (****). 424 pages. Published in 2009.
+2021-09-12: The Last Romantics by Tara Conklin (***). 352 pages. Published in 2019.
+2021-09-11: The Dry by Jane Harper (***). 352 pages. Published in 2016.
+2021-09-08: Better Luck Next Time by Julia Claiborne Johnson (***). 274 pages. Published in 2021.
+2021-09-07: The Wonder Test by Michelle Richmond (***). 430 pages. Published in 2021.
+2021-09-05: The Son of Good Fortune by Lysley Tenorio (***). 290 pages. Published in 2020.
+2021-09-01: Q&A by Vikas Swarup (****). 318 pages. Published in 2005.
+2021-08-31: Take Me Apart by Sara Sligar (***). 368 pages. Published in 2020.
+2021-08-30: The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (***). 624 pages. Published in 2021.
+2021-08-20: The Once and Future Witches by Alix E. Harrow (****). 516 pages. Published in 2020.
+2021-08-18: In Pursuit of the Unknown: 17 Equations That Changed the World by Ian Stewart (***). 342 pages. Published in 2012.
+2021-08-16: The Last Command by Timothy Zahn (*****). 467 pages. Published in 1993.
+2021-08-14: Gorky Park by Martin Cruz Smith (**). 433 pages. Published in 1981.
+2021-08-13: Dark Force Rising by Timothy Zahn (*****). 439 pages. Published in 1992.
+2021-08-10: Heir to the Empire by Timothy Zahn (*****). 434 pages. Published in 1991.
+2021-08-06: When We Were Magic by Sarah Gailey (***). 352 pages. Published in 2020.
+2021-08-06: What's Eating Gilbert Grape by Peter Hedges (****). 319 pages. Published in 1991.
+2021-08-06: The Family Firm by Emily Oster (***). 320 pages. Published in 2021.
+2021-07-29: All That's Bright and Gone by Eliza Nellums (****). 256 pages. Published in 2019.
+2021-07-28: Three Things About Elsie by Joanna Cannon (*). 464 pages. Published in 2018.
+2021-07-25: The Lies of Locke Lamora by Scott Lynch (**). 752 pages. Published in 2006.
+2021-07-25: Rush: Revolution, Madness, and the Visionary Doctor Who Became a Founding Father by Stephen Fried (***). 608 pages. Published in 2018.
+2021-07-13: The Anthropocene Reviewed by John Green (***). 293 pages. Published in 2021.
+2021-07-11: The Quantum Thief by Hannu Rajaniemi (**). 336 pages. Published in 2010.
+2021-07-10: Uncle Petros and Goldbach's Conjecture by Apostolos Doxiadis (***). 209 pages. Published in 1992.
+2021-07-08: Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (***). 368 pages. Published in 2021.
+2021-07-07: Something Deeply Hidden: Quantum Worlds and the Emergence of Spacetime by Sean Carroll (****). 368 pages. Published in 2019.
+2021-07-05: The Data Detective: Ten Easy Rules to Make Sense of Statistics by Tim Harford (***). 336 pages. Published in 2021.
+2021-06-30: Shape: The Hidden Geometry of Information, Biology, Strategy, Democracy, and Everything Else by Jordan Ellenberg (***). 480 pages. Published in 2021.
+2021-06-29: The 7½ Deaths of Evelyn Hardcastle by Stuart Turton (****). 432 pages. Published in 2018.
+2021-06-27: The Unpleasant Profession of Jonathan Hoag by Robert A. Heinlein (***). 296 pages. Published in 1959.
+2021-06-24: One of Us is Lying by Karen M. McManus (***). 360 pages. Published in 2017.
+2021-06-22: The Quick Fix: Why Fad Psychology Can't Cure Our Social Ills by Jesse Singal (***). 352 pages. Published in 2021.
+2021-06-21: Invisible Kingdom, Vol. 3: In Other Worlds by G. Willow Wilson (***). 128 pages. Published in 2021.
+2021-06-19: The Box in the Woods by Maureen Johnson (***). 400 pages. Published in 2021.
+2021-06-19: Invisible Kingdom, Vol. 2: Edge of Everything by G. Willow Wilson (***). 128 pages. Published in 2020.
+2021-06-18: The Plot by Jean Hanff Korelitz (****). 336 pages. Published in 2021.
+2021-06-17: The Humans by Matt Haig (****). 285 pages. Published in 2013.
+2021-06-17: Earth is Room Enough by Isaac Asimov (****). 208 pages. Published in 1957.
+2021-06-13: Weird Maths: At the Edge of Infinity and Beyond by David Darling & Agnijo Banerjee (***). 269 pages. Published in 2018.
+2021-06-09: Malibu Rising by Taylor Jenkins Reid (*****). 384 pages. Published in 2021.
+2021-06-05: The New World of Mr. Tompkins by George Gamow & Russell Stannard (*****). 258 pages. Published in 1999.
+2021-06-03: The Black Echo by Michael Connelly (***). 482 pages. Published in 1992.
+2021-06-03: Hawking by Jim Ottaviani & Leland Myrick (*****). 304 pages. Published in 2019.
+2021-05-31: Invisible Kingdom, Vol. 1: Walking the Path by G. Willow Wilson (****). 137 pages. Published in 2019.
+2021-05-31: Adventures of a Mathematician by Stanislaw M. Ulam (****). 329 pages. Published in 1976.
+2021-05-23: Project Hail Mary by Andy Weir (*****). 476 pages. Published in 2021.
+2021-05-13: Fugitive Telemetry by Martha Wells (****). 176 pages. Published in 2021.
+2021-05-12: Columbus Day by Craig Alanson (***). 271 pages. Published in 2016.
+2021-05-10: Hooked: Food, Free Will, and How the Food Giants Exploit Our Addictions by Michael Moss (***). 304 pages. Published in 2021.
+2021-04-23: Augustus: First Emperor of Rome by Adrian Goldsworthy (***). 624 pages. Published in 2014.
+2021-04-19: We Begin at the End by Chris Whitaker (*). 384 pages. Published in 2021.
+2021-04-05: Aspects of the Novel by E. M. Forster (***). 192 pages. Published in 1927.
+2021-04-04: The Lost Apothecary by Sarah Penner (****). 320 pages. Published in 2021.
+2021-03-28: The Lean Startup: How Today's Entrepreneurs Use Continuous Innovation to Create Radically Successful Businesses by Eric Ries (***). 320 pages. Published in 2011.
+2021-03-27: Math Goes to the Movies by Burkard Polster & Marty Ross (***). 286 pages. Published in 2012.
+2021-03-27: Come Fly the World: The Jet-Age Story of the Women of Pan Am by Julia Cooke (***). 288 pages. Published in 2021.
+2021-03-21: Klara and the Sun by Kazuo Ishiguro (*****). 304 pages. Published in 2021.
+2021-03-14: Louis D. Brandeis: A Life by Melvin I. Urofsky (****). 955 pages. Published in 2009.
+2021-03-14: Gold by Isaac Asimov (***). 400 pages. Published in 1992.
+2021-03-11: Mine!: How the Hidden Rules of Ownership Control Our Lives by Michael A Heller & James Salzman (****). 336 pages. Published in 2021.
+2021-02-22: The Martian Way and Other Stories by Isaac Asimov (****). 176 pages. Published in 1955.
+2021-02-14: Eisenhower in War and Peace by Jean Edward Smith (***). 976 pages. Published in 2012.
+2021-01-20: The Third Policeman by Flann O'Brien (*). 200 pages. Published in 1967.
+2021-01-11: The Iowa Baseball Confederacy by W. P. Kinsella (**). 310 pages. Published in 1986.
+2021-01-10: Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (****). 752 pages. Published in 2018.
+2021-01-03: Utterfly Dwarfed by Rich Burlew (****). 352 pages. Published in 2019.
+2021-01-02: The Last Campaign by Martin L. Shoemaker (****). 318 pages. Published in 2020.
+2021-01-01: I Want to Be a Mathematician: An Automathography by Paul R. Halmos (****). 421 pages. Published in 1985.
+2020-12-28: Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (***). 380 pages. Published in 2002.
+2020-12-27: The House in the Cerulean Sea by T. J. Klune (***). 393 pages. Published in 2020.
+2020-12-22: The Midnight Library by Matt Haig (**). 288 pages. Published in 2020.
+2020-12-20: Planetary, Volume 1: All Over the World and Other Stories by Warren Ellis (**). 160 pages. Published in 2001.
+2020-12-16: The Last Dance by Martin L. Shoemaker (***). 456 pages. Published in 2019.
+2020-12-15: Runaways: The Complete Collection, Vol. 2 by Brian K. Vaughan (****). 472 pages. Published in 2014.
+2020-12-09: Moonflower Murders by Anthony Horowitz (***). 608 pages. Published in 2020.
+2020-12-02: Colonel Roosevelt by Edmund Morris (****). 766 pages. Published in 2010.
+2020-11-15: The Invisible Life of Addie LaRue by V. E. Schwab (*****). 489 pages. Published in 2020.
+2020-11-03: The Polymath: A Cultural History from Leonardo da Vinci to Susan Sontag by Peter Burke (*). 352 pages. Published in 2020.
+2020-11-01: Slaughterhouse-Five, or the Children's Crusade by Ryan North & Kurt Vonnegut (*****). 192 pages. Published in 2020.
+2020-11-01: Giant Days: Early Registration by John Allison (***). 112 pages. Published in 2013.
+2020-11-01: Giant Days, Vol. 14 by John Allison (***). 112 pages. Published in 2020.
+2020-10-31: Giant Days, Vol. 13 by John Allison (*****). 112 pages. Published in 2020.
+2020-10-30: A Deadly Education by Naomi Novik (*****). 336 pages. Published in 2020.
+2020-10-24: Theodore Rex by Edmund Morris (*****). 772 pages. Published in 2001.
+2020-10-07: Life After Life by Kate Atkinson (*). 531 pages. Published in 2013.
+2020-10-02: No Rules Rules: Netflix and the Culture of Reinvention by Reed Hastings & Erin Meyer (***). 464 pages. Published in 2020.
+2020-09-24: The Rise of Theodore Roosevelt by Edmund Morris (*****). 816 pages. Published in 1979.
+2020-09-19: The Circular Staircase by Mary Roberts Rinehart (***). 208 pages. Published in 1908.
+2020-09-14: The Chocolate War by Robert Cormier (***). 267 pages. Published in 1974.
+2020-09-08: The Guest List by Lucy Foley (***). 330 pages. Published in 2020.
+2020-09-07: Sleights of Mind: What the Neuroscience of Magic Reveals about Our Everyday Deceptions by Stephen L. Macknik & Susana Martinez-Conde (***). 291 pages. Published in 2010.
+2020-09-07: Displacement by Kiku Hughes (*****). 277 pages. Published in 2020.
+2020-09-06: FoxTrot: The Works by Bill Amend (****). 254 pages. Published in 1990.
+2020-09-02: Diderot and the Art of Thinking Freely by Andrew S. Curran (*****). 520 pages. Published in 2019.
+2020-08-28: All Eyes on Her by Laurie Elizabeth Flynn (***). 384 pages. Published in 2020.
+2020-08-23: Why We Work by Barry Schwarz (****). 112 pages. Published in 2015.
+2020-08-23: The Guernsey Literary and Potato Peel Pie Society by Mary Ann Shaffer & Annie Barrows (***). 296 pages. Published in 2008.
+2020-08-19: Bagehot: The Life and Times of the Greatest Victorian by James Wilson (***). 368 pages. Published in 2019.
+2020-08-09: The Space Between Worlds by Micaiah Johnson (**). 336 pages. Published in 2020.
+2020-08-07: Florence Adler Swims Forever by Rachel Beanland (***). 320 pages. Published in 2020.
+2020-08-02: The Loneliest Girl in the Universe by Lauren James (***). 290 pages. Published in 2018.
+2020-08-01: Who is Alex Trebek? by Lisa Rogak (****). 256 pages. Published in 2020.
+2020-07-31: Utopia Avenue by David Mitchell (***). 574 pages. Published in 2020.
+2020-07-28: A Study in Charlotte by Brittany Cavallaro (***). 321 pages. Published in 2016.
+2020-07-26: Humble Pi: When Math Goes Wrong in the Real World by Matt Parker (*****). 336 pages. Published in 2019.
+2020-07-25: Sadie by Courtney Summers (***). 308 pages. Published in 2018.
+2020-07-21: Mother Land by Leah Franqui (****). 384 pages. Published in 2020.
+2020-07-21: I Killed Zoe Spanos by Kit Frick (***). 384 pages. Published in 2020.
+2020-07-18: Good Girl, Bad Blood by Holly Jackson (****). 417 pages. Published in 2020.
+2020-07-17: Repo Virtual by Corey J. White (**). 352 pages. Published in 2020.
+2020-07-12: Strike Me Down by Mindy Mejia (***). 332 pages. Published in 2020.
+2020-07-10: A Beautifully Foolish Endeavor by Hank Green (*****). 464 pages. Published in 2020.
+2020-07-06: Miracle Creek by Angie Kim (*****). 355 pages. Published in 2019.
+2020-06-30: Peter the Great: His Life and World by Robert K. Massie (***). 909 pages. Published in 1980.
+2020-06-14: The Crying of Lot 49 by Thomas Pynchon (****). 152 pages. Published in 1965.
+2020-06-13: The City We Became by N. K. Jemisin (***). 437 pages. Published in 2020.
+2020-06-07: Network Effect by Martha Wells (*****). 350 pages. Published in 2020.
+2020-06-06: The Hot Hand: The Mystery and Science of Streaks by Ben Cohen (****). 304 pages. Published in 2020.
+2020-06-03: Lincoln by David Herbert Donald (*****). 720 pages. Published in 1995.
+2020-05-16: Shades of Magic Vol. 1: The Steel Prince by V. E. Schwab (***). 114 pages. Published in 2019.
+2020-05-15: Bagels, Bumf, and Buses: A Day in the Life of the English Language by Simon Horobin (***). 256 pages. Published in 2020.
+2020-05-05: City of Girls by Elizabeth Gilbert (****). 480 pages. Published in 2019.
+2020-05-03: The Department of Sensitive Crimes by Alexander McCall Smith (***). 240 pages. Published in 2019.
+2020-04-29: Wayside School Is Falling Down by Louis Sachar (****). 152 pages. Published in 1989.
+2020-04-28: Pretty Things by Janelle Brown (*****). 496 pages. Published in 2020.
+2020-04-26: The Information: A History, a Theory, a Flood by James Gleick (****). 527 pages. Published in 2011.
+2020-04-19: His Majesty's Dragon by Naomi Novik (***). 356 pages. Published in 2006.
+2020-04-14: Beloved by Toni Morrison (*). 324 pages. Published in 1987.
+2020-04-13: The Calculating Stars by Mary Robinette Kowal (***). 431 pages. Published in 2018.
+2020-04-11: Sideways Stories from Wayside School by Louis Sachar (****). 158 pages. Published in 1978.
+2020-04-08: The Man in the Glass House: Philip Johnson, Architect of the Modern Century by Mark Lamster (****). 528 pages. Published in 2018.
+2020-04-05: Runaways: The Complete Collection Vol. 1 by Brian K. Vaughan (*****). 441 pages. Published in 2009.
+2020-03-29: Magical Mathematics: The Mathematical Ideas That Animate Great Magic Tricks by Persi Diaconis &Ron Graham (****). 244 pages. Published in 2011.
+2020-03-28: UNIX: A History and a Memoir by Brian W. Kernighan (*****). 198 pages. Published in 2019.
+2020-03-25: Woodrow Wilson: A Biography by John Milton Cooper Jr. (***). 702 pages. Published in 2009.
+2020-03-21: Raising Demons by Shirley Jackson (****). 310 pages. Published in 1957.
+2020-03-15: Dear Edward by Ann Napolitano (***). 352 pages. Published in 2020.
+2020-03-13: Drink? by David Nutt (***). 304 pages. Published in 2020.
+2020-03-10: Be Frank With Me by Julia Claiborne Johnson (***). 287 pages. Published in 2016.
+2020-03-06: Facebook: The Inside Story by Steven Levy (****). 592 pages. Published in 2020.
+2020-03-01: Oona Out of Order by Margarita Montimore (*****). 352 pages. Published in 2020.
+2020-02-24: Oscar and Lucinda by Peter Carey (*). 515 pages. Published in 1988.
+2020-02-22: Fruit of the Drunken Tree by Ingrid Rojas Contreras (***). 304 pages. Published in 2018.
+2020-02-22: A Good Girl's Guide to Murder by Holly Jackson (*****). 433 pages. Published in 2019.
+2020-02-16: The Secret Commonwealth by Philip Pullman (***). 685 pages. Published in 2019.
+2020-02-11: Camouflage by Joe Haldeman (***). 289 pages. Published in 2004.
+2020-02-09: Life Among the Savages by Shirley Jackson (****). 256 pages. Published in 1953.
+2020-02-09: Giant Days, Vol. 12 by John Allison (****). 112 pages. Published in 2020.
+2020-02-09: Giant Days, Vol. 11 by John Allison (*****). 162 pages. Published in 2019.
+2020-02-06: When We Were Vikings by Andrew David MacDonald (*****). 336 pages. Published in 2020.
+2020-02-03: Tiny Habits: The Small Changes That Change Everything by B.J. Fogg (****). 320 pages. Published in 2019.
+2020-02-02: The Death of Artemio Cruz by Carlos Fuentes (*). 307 pages. Published in 1962.
+2020-02-01: Lady Anna by Anthony Trollope (***). 560 pages. Published in 1874.
+2020-01-28: Shirley Jackson: A Rather Haunted Life by Ruth Franklin (*****). 624 pages. Published in 2016.
+2020-01-26: Paper Girls, Vol. 6 by Brian K. Vaughan (****). 144 pages. Published in 2019.
+2020-01-25: The Hand on the Wall by Maureen Johnson (****). 384 pages. Published in 2020.
+2020-01-19: The Wives by Tarryn Fisher (***). 336 pages. Published in 2019.
+2020-01-17: The Vanishing Stair by Maureen Johnson (*****). 369 pages. Published in 2019.
+2020-01-16: Truly Devious by Maureen Johnson (****). 416 pages. Published in 2018.
+2020-01-13: Awkward: The Science of Why We're Socially Awkward and Why That's Awesome by Ty Tashiro (**). 288 pages. Published in 2017.
+2020-01-12: Wrecking Ball by Jeff Kinney (****). 217 pages. Published in 2019.
+2020-01-11: Lady Susan by Jane Austen (**). 180 pages. Published in 1871.
+2020-01-09: The Peripheral by William Gibson (**). 485 pages. Published in 2014.
+2020-01-06: Barnum: An American Life by Robert Wilson (****). 352 pages. Published in 2019.
+2020-01-04: This Is How You Lose the Time War by Amal El-Mohtar & Max Gladstone (*). 208 pages. Published in 2019.
+2020-01-03: The Fish That Ate the Whale: The Life and Times of America's Banana King by Rich Cohen (***). 288 pages. Published in 2012.
+2020-01-03: The Chosen by Chaim Potok (*****). 304 pages. Published in 1967.
+2020-01-01: The Sentence is Death by Anthony Horowitz (****). 384 pages. Published in 2018.
 2019-12-29: Today I Am Carey by Martin L. Shoemaker (****). 336 pages. Published in 2019.
 2019-12-26: The Long Way to a Small, Angry Planet by Becky Chambers (**). 518 pages. Published in 2014.
 2019-12-25: The Last Time I Lied by Riley Sager (****). 384 pages. Published in 2018.
