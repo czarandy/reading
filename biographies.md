@@ -39,6 +39,7 @@
 * The Life of Elizabeth I by Alison Weir (\*\*\*\*)
 * Peter the Great: His Life and World by Robert K. Massie (\*\*\*)
 * Catherine the Great: Portrait of a Woman by Robert K. Massie (\*\*\*\*)
+* The Last King of America: The Misunderstood Reign of George III by Andrew Roberts (\*\*\*)
 * Napoleon: A Life by Andrew Roberts (\*\*\*)
 * Bolívar: American Liberator by Marie Arana (\*\*\*)
 * Churchill: Walking with Destiny by Andrew Roberts (\*\*\*\*\*)
