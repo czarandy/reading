@@ -89,6 +89,7 @@
 * The Fish That Ate the Whale: The Life and Times of America's Banana King by Rich Cohen (\*\*\*)
 * Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
+* The Chief: The Life of William Randolph Hearst by David Nasaw (\*\*\*\*\*)
  
 ## Autobiography/Memoir
 * I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
@@ -153,6 +154,7 @@
 * [1856-1941] Louis D. Brandeis: A Life by Melvin I. Urofsky (\*\*\*\*)
 * [1856-1924] Woodrow Wilson: A Biography by John Milton Cooper Jr. (\*\*\*)
 * [1858-1919] The Rise of Theodore Roosevelt by Edmund Morris (\*\*\*\*\*) / Theodore Rex by Edmund Morris (\*\*\*\*\*) / Colonel Roosevel by Edmund Morris (\*\*\*\*)
+* [1863-1951] The Chief: The Life of William Randolph Hearst by David Nasaw (\*\*\*\*\*)
 * [1867-1943] The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
 * [1867-1934] Marie Curie: A Life by Susan Quinn (\*\*\*)
 * [1872-1933] Coolidge: An American Enigma by Robert Sobel (\*\*\*)
