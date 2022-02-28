@@ -64,6 +64,7 @@
 * Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 * Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (\*\*\*)
 * Rush: Revolution, Madness, and the Visionary Doctor Who Became a Founding Father by Stephen Fried (\*\*\*)
+* The Invention of Nature: Alexander von Humboldt's New World by Andrea Wulf (\*\*\*)
 
 ## Writers/Artists/Musicians/Architects
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -138,6 +139,7 @@
 * [1767-1845] American Lion: Andrew Jackson in the White House by Jon Meacham (\*\*)
 * [1767-1848] John Quincy Adams: Militant Spirit by James Traub (\*\*\*\*)
 * [1769-1821] Napoleon: A Life by Andrew Roberts (\*\*\*)
+* [1769-1859] The Invention of Nature: Alexander von Humboldt's New World by Andrea Wulf (\*\*\*)
 * [1783-1830] Bolívar: American Liberator by Marie Arana (\*\*\*)
 * [1794-1877] The First Tycoon: The Epic Life of Cornelius Vanderbilt by T. J. Stiles (\*\*\*)
 * [1795-1849] Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
