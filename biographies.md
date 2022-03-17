@@ -65,6 +65,7 @@
 * Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (\*\*\*)
 * Rush: Revolution, Madness, and the Visionary Doctor Who Became a Founding Father by Stephen Fried (\*\*\*)
 * The Invention of Nature: Alexander von Humboldt's New World by Andrea Wulf (\*\*\*)
+* The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (\*\*\*)
 
 ## Writers/Artists/Musicians/Architects
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -170,6 +171,7 @@
 * [1890-1969] Eisenhower in War and Peace by Jean Edward Smith (\*\*\*\)
 * [1901-1954] The Pope of Physics: Enrico Fermi and the Birth of the Atomic Age by Gino Segre & Bettina Hoerlin (\*\*\*)
 * [1902-1984] The Strangest Man: the Hidden Life of Paul Dirac by Graham Farmelo (\*\*\*\*)
+* [1903-1957] The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (\*\*\*)
 * [1904-1967] American Prometheus: The Triumph and Tragedy of J. Robert Oppenheimer by Kai Bird & Martin J. Sherwin (\*\*)
 * [1906-1978] Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (\*\*\*)
 * [1906-2005] The Man in the Glass House: Philip Johnson, Architect of the Modern Century by Mark Lamster (\*\*\*\*)
