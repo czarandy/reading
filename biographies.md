@@ -117,6 +117,7 @@
 * You're Never Weird on the Internet (Almost) by Felicia aDay (\*\*\*\*\*)
 * Night by Elie Wiesel (\*\*\*\*)
 * Adventures of a Mathematician by Stanislaw M. Ulam (\*\*\*\*)
+* My World Line: An Informal Autobiography by George Gamow (\*\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -196,6 +197,7 @@
 # Autobiography/Memoir by DOB
 * [1877-1947] A Mathematician's Apology by G. H. Hardy (\*\*\*)
 * [1899-1961] A Moveable Feast by Ernest Hemingway (\*\*\*)
+* [1904-1968] My World Line: An Informal Autobiography by George Gamow (\*\*\*\*)
 * [1909-1984] Adventures of a Mathematician by Stanislaw M. Ulam (\*\*\*\*)
 * [1916-2006] I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
 * [1916-1965] Life Among the Savages by Shirley Jackson (\*\*\*\*)
