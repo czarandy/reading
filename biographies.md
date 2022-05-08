@@ -22,6 +22,7 @@
 * The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (\*\*\*)
 * The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
 * Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
+* Reagan: An American Journey by Bob Spitz (\*\*\*)
 
 ## Supreme Court
 * Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (\*\*\*\*\*)
@@ -177,6 +178,7 @@
 * [1906-1978] Journey to the Edge of Reason: The Life of Kurt Gödel by Stephen Budiansky (\*\*\*)
 * [1906-2005] The Man in the Glass House: Philip Johnson, Architect of the Modern Century by Mark Lamster (\*\*\*\*)
 * [1908-1973] The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (\*\*\*) / The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
+* [1911-2004] Reagan: An American Journey by Bob Spitz (\*\*\*)
 * [1912-1954] Alan Turing: The Enigma by Andrew Hodges (\*\*\*)
 * [1913-1994] Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
 * [1913-1996] The Man Who Loved Only Numbers: The Story of Paul Erdos and the Search for Mathematical Truth by Paul Hoffman (\*\*\*\*\*)
