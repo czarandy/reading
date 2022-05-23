@@ -93,6 +93,7 @@
 * Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
 * The Chief: The Life of William Randolph Hearst by David Nasaw (\*\*\*\*\*)
+* The Price of Peace: Money, Democracy, and the Life of John Maynard Keynes by Zachary D. Carter (\*)
  
 ## Autobiography/Memoir
 * I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
@@ -168,6 +169,7 @@
 * [1877-1961] [Samuel Zemurray] The Fish That Ate the Whale: The Life and Times of America's Banana King by Rich Cohen (\*\*\*)
 * [1879-1955] Einstein: His Life and Universe by Walter Isaacson (\*\*\*\*\*)
 * [1882-1945] FDR by Jean Edward Smith (\*\*\*\*)
+* [1883-1946] The Price of Peace: Money, Democracy, and the Life of John Maynard Keynes by Zachary D. Carter (\*)
 * [1884-1972] Truman by David McCullough (\*\*\*\*\*)
 * [1887-1920] The Man Who Knew Infinity: A Life of the Genius Ramanujan by Robert Kanigel (\*\*\*) 
 * [1890-1969] Eisenhower in War and Peace by Jean Edward Smith (\*\*\*\)
