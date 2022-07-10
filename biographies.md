@@ -23,6 +23,7 @@
 * The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
 * Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
 * Reagan: An American Journey by Bob Spitz (\*\*\*)
+* Destiny and Power: The American Odyssey of George Herbert Walker Bush by Jon Meacham (\*\*\*\*)
 
 ## Supreme Court
 * Without Precedent: Chief Justice John Marshall and His Times by Joel Richard Paul (\*\*\*\*\*)
@@ -188,6 +189,7 @@
 * [1916-1965] Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
 * [1918-1988] Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*) / Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 * [1920-1957] Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
+* [1924-2018] Destiny and Power: The American Odyssey of George Herbert Walker Bush by Jon Meacham (\*\*\*\*)
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-present] Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * [1933-2020] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*) / Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
