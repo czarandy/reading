@@ -68,6 +68,7 @@
 * Rush: Revolution, Madness, and the Visionary Doctor Who Became a Founding Father by Stephen Fried (\*\*\*)
 * The Invention of Nature: Alexander von Humboldt's New World by Andrea Wulf (\*\*\*)
 * The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (\*\*\*)
+* Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (\*\*\*\*)
 
 ## Writers/Artists/Musicians/Architects
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -172,6 +173,7 @@
 * [1882-1945] FDR by Jean Edward Smith (\*\*\*\*)
 * [1883-1946] The Price of Peace: Money, Democracy, and the Life of John Maynard Keynes by Zachary D. Carter (\*)
 * [1884-1972] Truman by David McCullough (\*\*\*\*\*)
+* [1885-1962] Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (\*\*\*\*)
 * [1887-1920] The Man Who Knew Infinity: A Life of the Genius Ramanujan by Robert Kanigel (\*\*\*) 
 * [1890-1969] Eisenhower in War and Peace by Jean Edward Smith (\*\*\*\)
 * [1901-1954] The Pope of Physics: Enrico Fermi and the Birth of the Atomic Age by Gino Segre & Bettina Hoerlin (\*\*\*)
