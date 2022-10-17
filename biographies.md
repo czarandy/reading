@@ -119,10 +119,11 @@
 * How to American: An Immigrant's Guide to Disappointing Your Parents by Jimmy O. Yang (\*\*\*\*)
 * Born a Crime by Trevor Noah (\*\*\*\*)
 * A Mathematician's Apology by G. H. Hardy (\*\*\*)
-* You're Never Weird on the Internet (Almost) by Felicia aDay (\*\*\*\*\*)
+* You're Never Weird on the Internet (Almost) by Felicia Day (\*\*\*\*\*)
 * Night by Elie Wiesel (\*\*\*\*)
 * Adventures of a Mathematician by Stanislaw M. Ulam (\*\*\*\*)
 * My World Line: An Informal Autobiography by George Gamow (\*\*\*\*)
+* I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -212,6 +213,7 @@
 * [1916-2006] I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
 * [1916-1965] Life Among the Savages by Shirley Jackson (\*\*\*\*)
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
+* [1920-1992] I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
 * [1928-2016] Night by Elie Wiesel (\*\*\*\*)
 * [1930-2009] Angela's Ashes by Frank McCourt (\*\*\*)
 * [1942-present] UNIX: A History and a Memoir by Brian W. Kernighan (\*\*\*\*\*)
