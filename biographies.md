@@ -81,6 +81,7 @@
 * Who is Alex Trebek by Lisa Roga (\*\*\*\*)
 * Diderot and the Art of Thinking Freely by Andrew S. Curran (\*\*\*\*\*)
 * Thomas Paine and the Clarion Call for American Independence by Harlow Giles Unger (\*\*\*\*\*)
+* The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -159,6 +160,7 @@
 * [1833-1911] The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
 * [1835-1919] Andrew Carnegie by David Nasaw (\*\*\*)
 * [1837-1915] [James Murray] The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (\*\*) 
+* [1838-1918] The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (\*\*)
 * [1839-1937] Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (\*\*\*\*\*)
 * [1841-1935] Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (\*\*\*\*)
 * [1856-1943] Tesla by W. Bernard Carlson (\*\*\*)
