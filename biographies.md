@@ -198,7 +198,7 @@
 * [1920-1957] Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 * [1924-2018] Destiny and Power: The American Odyssey of George Herbert Walker Bush by Jon Meacham (\*\*\*\*)
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
-* [1931-present] Gorbachev: His Life and Times by William Taubman (\*\*\*)
+* [1931-2022] Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * [1933-2020] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*) / Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
 * [1940-2020] Who is Alex Trebek by Lisa Roga (\*\*\*\*)
 * [1941-present] Dylan on Dylan by Jonathan Cott (\*\*)
