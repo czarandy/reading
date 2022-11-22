@@ -161,7 +161,7 @@
 * [1833-1911] The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
 * [1835-1919] Andrew Carnegie by David Nasaw (\*\*\*)
 * [1837-1915] [James Murray] The Professor and the Madman: A Tale of Murder, Insanity, and the Making of the Oxford English Dictionary by Simon Winchester (\*\*) 
-* A Man of Iron: The Turbulent Life and Improbable Presidency of Grover Cleveland by Troy Senik (\*\*\*\*)
+* [1837-1908] A Man of Iron: The Turbulent Life and Improbable Presidency of Grover Cleveland by Troy Senik (\*\*\*\*)
 * [1838-1918] The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (\*\*)
 * [1839-1937] Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (\*\*\*\*\*)
 * [1841-1935] Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (\*\*\*\*)
