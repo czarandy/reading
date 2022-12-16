@@ -83,6 +83,7 @@
 * Diderot and the Art of Thinking Freely by Andrew S. Curran (\*\*\*\*\*)
 * Thomas Paine and the Clarion Call for American Independence by Harlow Giles Unger (\*\*\*\*\*)
 * The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (\*\*)
+* The Revolutionary: Samuel Adams by Stacy Schiff (\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -138,6 +139,7 @@
 * [1672-1725] Peter the Great: His Life and World by Robert K. Massie (\*\*\*)
 * [1706-1790] Benjamin Franklin: An American Life by Walter Isaacson (\*\*\*\*\*)
 * [1713-1784] Diderot and the Art of Thinking Freely by Andrew S. Curran (\*\*\*\*\*)
+* [1722-1803] The Revolutionary: Samuel Adams by Stacy Schiff (\*\*\*)
 * [1729-1796] Catherine the Great: Portrait of a Woman by Robert K. Massie (\*\*\*\*)
 * [1732-1799] Washington: A Life by Ron Chernow (\*\*\*\*)
 * [1735-1826] John Adams by David McCullough (\*\*\*\*\*)
