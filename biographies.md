@@ -86,6 +86,7 @@
 * Thomas Paine and the Clarion Call for American Independence by Harlow Giles Unger (\*\*\*\*\*)
 * The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (\*\*)
 * The Revolutionary: Samuel Adams by Stacy Schiff (\*\*\*)
+* Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -162,6 +163,7 @@
 * [1795-1849] Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
 * [1809-1865] Lincoln by David Herbert Donald (\*\*\*\*\*)
 * [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
+* [1817-1895] Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
 * [1822-1885] Grant by Ron Chernow (\*\*\*\*\*)
 * [1826-1877] Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
 * [1833-1911] The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
