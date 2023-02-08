@@ -163,7 +163,7 @@
 * [1795-1849] Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
 * [1809-1865] Lincoln by David Herbert Donald (\*\*\*\*\*)
 * [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
-* [1817-1895] Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
+* [1818-1895] Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
 * [1822-1885] Grant by Ron Chernow (\*\*\*\*\*)
 * [1826-1877] Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
 * [1833-1911] The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
