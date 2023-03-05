@@ -8,7 +8,7 @@
 * The Last Founding Father: James Monroe and a Nation's Call to Greatness (\*\*\*\*)
 * John Quincy Adams: Militant Spirit by James Traub (\*\*\*\*)
 * American Lion: Andrew Jackson in the White House by Jon Meacham (\*\*)
-* Mr. Jefferson's Hammer: William Henry Harrison and the Origins of American Indian Policy (\*\*)
+* Mr. Jefferson's Hammer: William Henry Harrison and the Origins of American Indian Policy by Robert M. Owens (\*\*)
 * Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
 * Lincoln by David Herbert Donald (\*\*\*\*\*)
 * Grant by Ron Chernow (\*\*\*\*\*)
@@ -73,7 +73,7 @@
 * The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (\*\*\*)
 * Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (\*\*\*\*)
 
-## Writers/Artists/Musicians/Architects
+## Writers/Artists/Musicians/Architects/Politicians
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
 * Jonathan Swift: The Reluctant Rebel by John Stubbs (\*\*\*)
 * Leonardo da Vinci by Walter Isaacson (\*\*\*)
@@ -87,6 +87,7 @@
 * The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (\*\*)
 * The Revolutionary: Samuel Adams by Stacy Schiff (\*\*\*)
 * Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
+* Henry Clay: The Essential American by David Stephen Heidler & Jeanne T. Heidler (\*\*\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -157,7 +158,8 @@
 * [1767-1848] John Quincy Adams: Militant Spirit by James Traub (\*\*\*\*)
 * [1769-1821] Napoleon: A Life by Andrew Roberts (\*\*\*)
 * [1769-1859] The Invention of Nature: Alexander von Humboldt's New World by Andrea Wulf (\*\*\*)
-* [1773-1841] Mr. Jefferson's Hammer: William Henry Harrison and the Origins of American Indian Policy (\*\*)
+* [1773-1841] Mr. Jefferson's Hammer: William Henry Harrison and the Origins of American Indian Policy by Robert M. Owens (\*\*)
+* [1777-1852] Henry Clay: The Essential American by David Stephen Heidler & Jeanne T. Heidler (\*\*\*\*\*)
 * [1783-1830] Bolívar: American Liberator by Marie Arana (\*\*\*)
 * [1794-1877] The First Tycoon: The Epic Life of Cornelius Vanderbilt by T. J. Stiles (\*\*\*)
 * [1795-1849] Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
