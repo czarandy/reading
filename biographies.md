@@ -50,6 +50,7 @@
 * Bolívar: American Liberator by Marie Arana (\*\*\*)
 * Churchill: Walking with Destiny by Andrew Roberts (\*\*\*\*\*)
 * Gorbachev: His Life and Times by William Taubman (\*\*\*)
+* Victoria The Queen: An Intimate Biography of the Woman Who Ruled an Empire by Julia Baird (\*\*\*\*\*)
 
 ## Mathematicians/Scientists
 * Newton and the Counterfeiter by Thomas Levenson (\*\*\*\*)
@@ -167,6 +168,7 @@
 * [1809-1865] Lincoln by David Herbert Donald (\*\*\*\*\*)
 * [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * [1818-1895] Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
+* [1819-1901] Victoria The Queen: An Intimate Biography of the Woman Who Ruled an Empire by Julia Baird (\*\*\*\*\*)
 * [1822-1885] Grant by Ron Chernow (\*\*\*\*\*)
 * [1826-1877] Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
 * [1833-1911] The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
