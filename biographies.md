@@ -51,6 +51,7 @@
 * Churchill: Walking with Destiny by Andrew Roberts (\*\*\*\*\*)
 * Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * Victoria The Queen: An Intimate Biography of the Woman Who Ruled an Empire by Julia Baird (\*\*\*\*\*)
+* De Gaulle by Julian Jackson (\*\*)
 
 ## Mathematicians/Scientists
 * Newton and the Counterfeiter by Thomas Levenson (\*\*\*\*)
@@ -196,6 +197,7 @@
 * [1885-1962] Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (\*\*\*\*)
 * [1887-1920] The Man Who Knew Infinity: A Life of the Genius Ramanujan by Robert Kanigel (\*\*\*) 
 * [1890-1969] Eisenhower in War and Peace by Jean Edward Smith (\*\*\*\)
+* [1890-1970] De Gaulle by Julian Jackson (\*\*)
 * [1901-1954] The Pope of Physics: Enrico Fermi and the Birth of the Atomic Age by Gino Segre & Bettina Hoerlin (\*\*\*)
 * [1902-1984] The Strangest Man: the Hidden Life of Paul Dirac by Graham Farmelo (\*\*\*\*)
 * [1903-1957] The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (\*\*\*)
