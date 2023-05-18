@@ -134,6 +134,7 @@
 * Adventures of a Mathematician by Stanislaw M. Ulam (\*\*\*\*)
 * My World Line: An Informal Autobiography by George Gamow (\*\*\*\*)
 * I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
+* The Way the Future Was by Frederik Pohl (\*\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -233,6 +234,7 @@
 * [1916-2006] I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
 * [1916-1965] Life Among the Savages by Shirley Jackson (\*\*\*\*)
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
+* [1919-2013] The Way the Future Was by Frederik Pohl (\*\*\*\*)
 * [1920-1992] I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
 * [1928-2016] Night by Elie Wiesel (\*\*\*\*)
 * [1930-2009] Angela's Ashes by Frank McCourt (\*\*\*)
