@@ -252,6 +252,6 @@
 * [1970-present] Paddle Your Own Canoe: One Man's Fundamentals for Delicious Living by Nick Offerman (\*\*)
 * [1971-present] Yes Please by Amy Poehler (\*\*)
 * [1975-present] My Horizontal Life by Chelsea Handler (\*\*\*)
-* [1979-present] You're Never Weird on the Internet (Almost) by Felicia aDay (\*\*\*\*\*)
+* [1979-present] You're Never Weird on the Internet (Almost) by Felicia Day (\*\*\*\*\*)
 * [1985-present] Born a Crime by Trevor Noah (\*\*\*\*)
 * [1987-present] How to American: An Immigrant's Guide to Disappointing Your Parents by Jimmy O. Yang (\*\*\*\*)
