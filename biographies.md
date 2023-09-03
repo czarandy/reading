@@ -52,6 +52,7 @@
 * Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * Victoria The Queen: An Intimate Biography of the Woman Who Ruled an Empire by Julia Baird (\*\*\*\*\*)
 * De Gaulle by Julian Jackson (\*\*)
+* Henry VIII: The King and His Court by Alison Weir (\*\*\*\*)
 
 ## Mathematicians/Scientists
 * Newton and the Counterfeiter by Thomas Levenson (\*\*\*\*)
@@ -142,6 +143,7 @@
 * [69 BC-30 BC] Cleopatra: A Life by Stacy Schiff (\*\*\*)
 * [63 BC-24 AD] Augustus: First Emperor of Rome (\*\*\*)
 * [1452-1519] Leonardo da Vinci by Walter Isaacson (\*\*\*)
+* [1491-1547] Henry VIII: The King and His Court by Alison Weir (\*\*\*\*)
 * [1533-1603] The Life of Elizabeth I by Alison Weir (\*\*\*\*)
 * [1643-1727] Newton and the Counterfeiter by Thomas Levenson (\*\*\*\*)
 * [1667-1745] Jonathan Swift: The Reluctant Rebel by John Stubbs (\*\*\*)
