@@ -137,6 +137,7 @@
 * My World Line: An Informal Autobiography by George Gamow (\*\*\*\*)
 * I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
 * The Way the Future Was by Frederik Pohl (\*\*\*\*)
+* Eye of the Hurricane by Richard Bellman (\*\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -240,6 +241,7 @@
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
 * [1919-2013] The Way the Future Was by Frederik Pohl (\*\*\*\*)
 * [1920-1992] I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
+* [1920-1984] Eye of the Hurricane by Richard Bellman (\*\*\*\*)
 * [1928-2016] Night by Elie Wiesel (\*\*\*\*)
 * [1930-2009] Angela's Ashes by Frank McCourt (\*\*\*)
 * [1942-present] UNIX: A History and a Memoir by Brian W. Kernighan (\*\*\*\*\*)
