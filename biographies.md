@@ -138,6 +138,7 @@
 * I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
 * The Way the Future Was by Frederik Pohl (\*\*\*\*)
 * Eye of the Hurricane by Richard Bellman (\*\*\*\*)
+* The Apprenticeship of a Mathematician by André Weil (\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -235,6 +236,7 @@
 * [1877-1947] A Mathematician's Apology by G. H. Hardy (\*\*\*)
 * [1899-1961] A Moveable Feast by Ernest Hemingway (\*\*\*)
 * [1904-1968] My World Line: An Informal Autobiography by George Gamow (\*\*\*\*)
+* [1906-1998] The Apprenticeship of a Mathematician by André Weil (\*\*\*)
 * [1909-1984] Adventures of a Mathematician by Stanislaw M. Ulam (\*\*\*\*)
 * [1916-2006] I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
 * [1916-1965] Life Among the Savages by Shirley Jackson (\*\*\*\*)
