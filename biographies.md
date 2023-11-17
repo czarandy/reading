@@ -139,6 +139,7 @@
 * The Way the Future Was by Frederik Pohl (\*\*\*\*)
 * Eye of the Hurricane by Richard Bellman (\*\*\*\*)
 * The Apprenticeship of a Mathematician by André Weil (\*\*\*)
+* A Russian Childhood by Sofya Kovalevskaya (\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -233,6 +234,7 @@
 * [1971-present] Elon Musk by Ashlee Vance (\*\*\*)
 
 # Autobiography/Memoir by DOB
+* [1850-1891] A Russian Childhood by Sofya Kovalevskaya (\*\*\*)
 * [1877-1947] A Mathematician's Apology by G. H. Hardy (\*\*\*)
 * [1899-1961] A Moveable Feast by Ernest Hemingway (\*\*\*)
 * [1904-1968] My World Line: An Informal Autobiography by George Gamow (\*\*\*\*)
