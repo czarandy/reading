@@ -140,6 +140,7 @@
 * Eye of the Hurricane by Richard Bellman (\*\*\*\*)
 * The Apprenticeship of a Mathematician by André Weil (\*\*\*)
 * A Russian Childhood by Sofya Kovalevskaya (\*\*\*)
+* Sid Meier's Memoir!: A Life in Computer Games by Sid Meier (\*\*\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -252,6 +253,7 @@
 * [1942-present] Heading South, Looking North by Ariel Dorfman (\*\*\*)
 * [1948-present] Readling Lolita in Tehran by Azar Nafisi (\*\*\*)
 * [1950-present] iWoz by Steve Wozniak (\*\*\*\*)
+* [1954-present] Sid Meier's Memoir!: A Life in Computer Games by Sid Meier (\*\*\*\*\*)
 * [1956-present] Dress Your Family in Corduroy and Denim by David Sedaris (\*\*)
 * [1966-present] The Bassoon King by Rainn Wilson (\*\*\*)
 * [1968-present] Love and Math by Edward Frenkel (\*\*\*)
