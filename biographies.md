@@ -141,6 +141,7 @@
 * The Apprenticeship of a Mathematician by André Weil (\*\*\*)
 * A Russian Childhood by Sofya Kovalevskaya (\*\*\*)
 * Sid Meier's Memoir!: A Life in Computer Games by Sid Meier (\*\*\*\*\*)
+* Which Door has the Cadillac: Adventures of a Real-Life Mathematician by Andrew Vazsonyi (\*\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -243,6 +244,7 @@
 * [1909-1984] Adventures of a Mathematician by Stanislaw M. Ulam (\*\*\*\*)
 * [1916-2006] I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
 * [1916-1965] Life Among the Savages by Shirley Jackson (\*\*\*\*)
+* [1916-2003] Which Door has the Cadillac: Adventures of a Real-Life Mathematician by Andrew Vazsonyi (\*\*\*\*)
 * [1918-1988] "What Do You Care What Other People Think?" by Richard Feynman (\*\*\*) / "Surely You're Joking, Mr. Feynman!" by Richard Feynman (\*\*\*\*)
 * [1919-2013] The Way the Future Was by Frederik Pohl (\*\*\*\*)
 * [1920-1992] I. Asimov: A Memoir by Isaac Asimov (\*\*\*\*\*)
