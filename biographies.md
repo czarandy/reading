@@ -93,6 +93,7 @@
 * Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
 * Henry Clay: The Essential American by David Stephen Heidler & Jeanne T. Heidler (\*\*\*\*\*)
 * Becoming Dr. Seuss: Theodor Geisel and the Making of an American Imagination by Brian Jay Jones (\*\*\*\*\*)
+* Terry Pratchett: A Life With Footnotes: The Official Biography by Rob Wilkins (\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -231,6 +232,7 @@
 * [1940-2020] Who is Alex Trebek by Lisa Rogak (\*\*\*\*)
 * [1941-present] Dylan on Dylan by Jonathan Cott (\*\*)
 * [1942-2018] Hawking by Jim Ottaviani & Leland Myrick (\*\*\*\*\*)
+* [1948-2015] Terry Pratchett: A Life With Footnotes: The Official Biography by Rob Wilkins (\*\*\*)
 * [1955-2011] Steve Jobs by Walter Isaacson (\*\*\*\*\*)
 * [1964-present] The Everything Store: Jeff Bezos and the Age of Amazon by Brad Stone (\*\*\*)
 * [1971-present] Elon Musk by Ashlee Vance (\*\*\*)
