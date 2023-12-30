@@ -37,6 +37,7 @@
 * Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*)
 * Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
 * The Great Dissenter: The Story of John Marshall Harlan, America's Judicial Hero by Peter S. Canellos (\*\*\*)
+* Salmon P. Chase: Lincoln's Vital Rival by Walter Stahr (\*\*\*\*)
 
 ## World Leaders
 * Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -176,6 +177,7 @@
 * [1783-1830] Bolívar: American Liberator by Marie Arana (\*\*\*)
 * [1794-1877] The First Tycoon: The Epic Life of Cornelius Vanderbilt by T. J. Stiles (\*\*\*)
 * [1795-1849] Polk: The Man Who Transformed the Presidency and America by Walter R. Borneman (\*\*\*)
+* [1808-1873] Salmon P. Chase: Lincoln's Vital Rival by Walter Stahr (\*\*\*\*)
 * [1809-1865] Lincoln by David Herbert Donald (\*\*\*\*\*)
 * [1810-1891] Barnum: An American Life by Robert Wilson (\*\*\*\*)
 * [1818-1895] Frederick Douglass: Prophet of Freedom by David W. Blight (\*\*\*\*)
