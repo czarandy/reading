@@ -111,6 +111,7 @@
 * Bagehot: The Life and Times of the Greatest Victorian by James Wilson (\*\*\*)
 * The Chief: The Life of William Randolph Hearst by David Nasaw (\*\*\*\*\*)
 * The Price of Peace: Money, Democracy, and the Life of John Maynard Keynes by Zachary D. Carter (\*)
+* Milton Friedman: The Last Conservative by Jennifer Burns (\*\*\*\*\*)
  
 ## Autobiography/Memoir
 * I Want to Be a Mathematician: An Automathography by Paul R. Halmos (\*\*\*\*)
@@ -220,6 +221,7 @@
 * [1908-1973] The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (\*\*\*) / The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
 * [1911-2004] Reagan: An American Journey by Bob Spitz (\*\*\*)
 * [1912-1954] Alan Turing: The Enigma by Andrew Hodges (\*\*\*)
+* [1912-2006] Milton Friedman: The Last Conservative by Jennifer Burns (\*\*\*\*\*)
 * [1913-1994] Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
 * [1913-1996] The Man Who Loved Only Numbers: The Story of Paul Erdos and the Search for Mathematical Truth by Paul Hoffman (\*\*\*\*\*)
 * [1916-2001] A Mind at Play: How Claude Shannon Invented the Information Age by Jimmy Soni & Rob Goodman (\*\*\*\*)
