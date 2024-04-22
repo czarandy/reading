@@ -78,6 +78,7 @@
 * The Invention of Nature: Alexander von Humboldt's New World by Andrea Wulf (\*\*\*)
 * The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (\*\*\*)
 * Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (\*\*\*\*)
+* Leonhard Euler: Mathematical Genius in the Enlightenment by Ronald S. Calinger (\*\*\*)
 
 ## Writers/Artists/Musicians/Architects/Politicians
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -158,6 +159,7 @@
 * [1667-1745] Jonathan Swift: The Reluctant Rebel by John Stubbs (\*\*\*)
 * [1672-1725] Peter the Great: His Life and World by Robert K. Massie (\*\*\*)
 * [1706-1790] Benjamin Franklin: An American Life by Walter Isaacson (\*\*\*\*\*)
+* [1707-1783] Leonhard Euler: Mathematical Genius in the Enlightenment by Ronald S. Calinger (\*\*\*)
 * [1713-1784] Diderot and the Art of Thinking Freely by Andrew S. Curran (\*\*\*\*\*)
 * [1722-1803] The Revolutionary: Samuel Adams by Stacy Schiff (\*\*\*)
 * [1729-1796] Catherine the Great: Portrait of a Woman by Robert K. Massie (\*\*\*\*)
