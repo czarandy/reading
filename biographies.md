@@ -79,6 +79,7 @@
 * The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (\*\*\*)
 * Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (\*\*\*\*)
 * Leonhard Euler: Mathematical Genius in the Enlightenment by Ronald S. Calinger (\*\*\*)
+* Edison by Edmund Morris (\*\*\*)
 
 ## Writers/Artists/Musicians/Architects/Politicians
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -196,6 +197,7 @@
 * [1838-1918] The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (\*\*)
 * [1839-1937] Titan: The Life of John D. Rockefeller, Sr. by Ron Chernow (\*\*\*\*\*)
 * [1841-1935] Oliver Wendell Holmes: A Life in War, Law, and Ideas by Stephen Budiansky (\*\*\*\*)
+* [1847-1931] Edison by Edmund Morris (\*\*\*)
 * [1856-1943] Tesla by W. Bernard Carlson (\*\*\*)
 * [1856-1941] Louis D. Brandeis: A Life by Melvin I. Urofsky (\*\*\*\*)
 * [1856-1924] Woodrow Wilson: A Biography by John Milton Cooper Jr. (\*\*\*)
