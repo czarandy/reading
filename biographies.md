@@ -27,6 +27,7 @@
 * The Years of Lyndon Johnson: The Path to Power by Robert A. Caro (\*\*\*)
 * The Years of Lyndon Johnson: Means of Ascent by Robert A. Caro (\*\*\*)
 * Richard Nixon: The Life by John A. Farrell (\*\*\*\*)
+* His Very Best: Jimmy Carter, a Life by Jonathan Alter (\*\*\*\*\*)
 * Reagan: An American Journey by Bob Spitz (\*\*\*)
 * Destiny and Power: The American Odyssey of George Herbert Walker Bush by Jon Meacham (\*\*\*\*)
 
@@ -236,6 +237,7 @@
 * [1918-1988] Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*) / Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 * [1920-1957] Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 * [1924-2018] Destiny and Power: The American Odyssey of George Herbert Walker Bush by Jon Meacham (\*\*\*\*)
+* [1924-present] His Very Best: Jimmy Carter, a Life by Jonathan Alter (\*\*\*\*\*)
 * [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-2022] Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * [1933-2020] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*) / Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
