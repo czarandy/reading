@@ -149,6 +149,7 @@
 * A Russian Childhood by Sofya Kovalevskaya (\*\*\*)
 * Sid Meier's Memoir!: A Life in Computer Games by Sid Meier (\*\*\*\*\*)
 * Which Door has the Cadillac: Adventures of a Real-Life Mathematician by Andrew Vazsonyi (\*\*\*\*)
+* I Want to Be Where the Normal People Are by Rachel Bloom (\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -280,4 +281,5 @@
 * [1975-present] My Horizontal Life by Chelsea Handler (\*\*\*)
 * [1979-present] You're Never Weird on the Internet (Almost) by Felicia Day (\*\*\*\*\*)
 * [1985-present] Born a Crime by Trevor Noah (\*\*\*\*)
+* [1987-present] I Want to Be Where the Normal People Are by Rachel Bloom (\*\*\*)
 * [1987-present] How to American: An Immigrant's Guide to Disappointing Your Parents by Jimmy O. Yang (\*\*\*\*)
