@@ -1,3 +1,333 @@
+2024-10-19: The Wedding People by Alison Espach (****). 384 pages. Published in 2024.
+2024-10-17: Throwback by Peter Lerangis (**). 352 pages. Published in 2019.
+2024-10-16: Star Trek: Lower Decks by Ryan North (****). 120 pages. Published in 2023.
+2024-10-07: Salt, Fat, Acid, Heat: Mastering the Elements of Good Cooking by Samin Nosrat (****). 480 pages. Published in 2017.
+2024-10-06: Nobody's Fool: Why We Get Taken In and What We Can Do About It by Daniel Simons & Christopher Chabris (***). 336 pages. Published in 2023.
+2024-09-30: Queens of Geek by Jen Wilde (***). 262 pages. Published in 2017.
+2024-09-28: The Partner Track by Helen Wan (***). 294 pages. Published in 2013.
+2024-09-25: The Pelican Brief by John Grisham (***). 482 pages. Published in 1992.
+2024-09-15: Such Charming Liars by Karen M. McManus (***). 320 pages. Published in 2024.
+2024-09-04: Shards of Earth by Adrian Tchaikovsky (****). 548 pages. Published in 2021.
+2024-08-29: On the Edge: The Art of Risking Everything by Nate Silver (***). 576 pages. Published in 2024.
+2024-08-26: I Have Some Questions For You by Rebecca Makkai (***). 438 pages. Published in 2023.
+2024-08-23: The Talented Mr. Ripley by Patricia Highsmith (***). 273 pages. Published in 1955.
+2024-08-18: Deal Breaker by Harlan Coben (****). 339 pages. Published in 1995.
+2024-08-16: Apostles of Mercy by Lindsay Ellis (****). 464 pages. Published in 2024.
+2024-08-12: House of Suns by Alastair Reynolds (**). 512 pages. Published in 2008.
+2024-07-29: Everything Is Predictable: How Bayesian Statistics Explain Our World by Tom Chivers (***). 384 pages. Published in 2024.
+2024-07-21: Zero Days by Ruth Ware (***). 356 pages. Published in 2023.
+2024-07-21: The Last Murder at the End of the World by Stuart Turton (****). 354 pages. Published in 2024.
+2024-07-20: Crocodile on the Sandbank by Elizabeth Peters (**). 262 pages. Published in 1975.
+2024-07-20: Broken Angels by Richard K. Morgan (**). 366 pages. Published in 2003.
+2024-07-14: Tales of the City by Armistead Maupin (***). 371 pages. Published in 1978.
+2024-07-12: Supercommunicators: How to Unlock the Secret Language of Connection by Charles Duhigg (**). 320 pages. Published in 2024.
+2024-07-12: Fool Me Once by Harlan Coben (****). 387 pages. Published in 2016.
+2024-07-07: The Return of Ellie Black by Emiko Jean (***). 320 pages. Published in 2024.
+2024-07-06: The Final Act of Juliette Willoughby by Ellery Lloyd (*****). 336 pages. Published in 2024.
+2024-07-02: I Want to Be Where the Normal People Are by Rachel Bloom (***). 288 pages. Published in 2020.
+2024-06-26: Very Bad Company by Emma Rosenblum (***). 272 pages. Published in 2024.
+2024-06-26: Real Americans by Rachel Khong (****). 416 pages. Published in 2024.
+2024-06-24: The Year of Living Constitutionally: One Man's Humble Quest to Follow the Constitution's Original Meaning by A.J. Jacobs (****). 304 pages. Published in 2024.
+2024-06-22: His Very Best: Jimmy Carter, a Life by Jonathan Alter (*****). 800 pages. Published in 2020.
+2024-06-17: The Chinese Groove by Kathryn Ma (***). 304 pages. Published in 2023.
+2024-06-15: Fool Moon by Jim Butcher (**). 401 pages. Published in 2001.
+2024-06-09: A Great Country by Shilpi Somaya Gowda (**). 256 pages. Published in 2024.
+2024-06-08: Chaos Terminal by Mur Lafferty (***). 368 pages. Published in 2023.
+2024-06-08: Amatka by Karin Tidbeck (****). 216 pages. Published in 2012.
+2024-06-05: The One and Only Ivan by Katherine Applegate (*****). 307 pages. Published in 2012.
+2024-06-02: Storm Front by Jim Butcher (***). 355 pages. Published in 2000.
+2024-05-31: How to Solve Your Own Murder by Kristen Perrin (****). 368 pages. Published in 2024.
+2024-05-25: The Adventures of Amina al-Sirafi by Shannon Chakraborty (***). 483 pages. Published in 2023.
+2024-05-22: How to Become Famous: Lost Einsteins, Forgotten Superstars, and How the Beatles Came to Be by Cass R. Sunstein (****). 272 pages. Published in 2024.
+2024-05-20: The Fellowship of Puzzlemakers by Samuel Burr (*). 361 pages. Published in 2024.
+2024-05-18: Edison by Edmund Morris (***). 800 pages. Published in 2019.
+2024-05-17: The Light Brigade by Kameron Hurley (*****). 356 pages. Published in 2019.
+2024-05-12: Station Eternity by Mur Lafferty (***). 457 pages. Published in 2022.
+2024-05-11: The Reappearance of Rachel Price by Holly Jackson (****). 448 pages. Published in 2024.
+2024-05-10: The Book of Love by Kelly Link (***). 628 pages. Published in 2024.
+2024-05-05: Space Case by Stuart Gibbs (***). 352 pages. Published in 2014.
+2024-05-01: ANANKE: The Prologue by Natalie Raffaele (***). 212 pages. Published in 2023.
+2024-04-27: The Day Tripper by James Goodhand (***). 368 pages. Published in 2024.
+2024-04-25: Some Desperate Glory by Emily Tesh (***). 438 pages. Published in 2023.
+2024-04-24: Cities in Flight by James Blish (*). 608 pages. Published in 1970.
+2024-04-22: Leonhard Euler: Mathematical Genius in the Enlightenment by Ronald S. Calinger (***). 669 pages. Published in 2015.
+2024-04-22: Close to Death by Anthony Horowitz (****). 419 pages. Published in 2024.
+2024-04-18: Truth of the Divine by Lindsay Ellis (**). 496 pages. Published in 2021.
+2024-04-16: President Garfield: From Radical to Unifier by C. W. Goodyear (****). 624 pages. Published in 2023.
+2024-04-14: Too Like the Lightning by Ada Palmer (**). 432 pages. Published in 2016.
+2024-04-11: Tales from a Not-So-Popular Party Girl by Rachel Renée Russell (***). 288 pages. Published in 2010.
+2024-04-10: Axiom's End by Lindsay Ellis (****). 384 pages. Published in 2020.
+2024-04-09: Miss Mackenzie by Anthony Trollope (***). 432 pages. Published in 1865.
+2024-04-06: Convenience Store Woman by Sayaka Murata (****). 172 pages. Published in 2016.
+2024-04-02: Plagues upon the Earth: Disease and the Course of Human History by Kyle Harper (****). 704 pages. Published in 2021.
+2024-03-28: How to Be Perfect: The Correct Answer to Every Moral Question by Michael Schur (**). 289 pages. Published in 2022.
+2024-03-18: Listen for the Lie by Amy Tintera (***). 352 pages. Published in 2024.
+2024-03-17: A Conjuring of Light by V. E. Schwab (****). 624 pages. Published in 2017.
+2024-03-14: A Gathering of Shadows by V. E. Schwab (*****). 512 pages. Published in 2016.
+2024-03-09: Bad Therapy: Why the Kids Aren't Growing Up by Abigail Shrier (***). 351 pages. Published in 2024.
+2024-03-04: A Darker Shade of Magic by V. E. Schwab (*****). 400 pages. Published in 2015.
+2024-03-03: The Deep Range by Arthur C. Clarke (**). 224 pages. Published in 1957.
+2024-02-25: The Fragile Threads of Power by V. E. Schwab (*****). 648 pages. Published in 2023.
+2024-02-25: Family Family by Laurie Frankel (****). 400 pages. Published in 2024.
+2024-02-13: Fake History by Jo Hedwig Teeuwisse (***). 398 pages. Published in 2023.
+2024-02-11: Shubeik Lubeik by Deena Mohamed (***). 528 pages. Published in 2022.
+2024-02-10: Dork Diaries: Tales From a Not-So-Fabulous Life by Rachel Renée Russell (***). 327 pages. Published in 2009.
+2024-02-09: Around the World in Eighty Games: From Tarot to Tic-Tac-Toe, Catan to Chutes and Ladders, a Mathematician Unlocks the Secrets of the World's Greatest Games by Marcus du Sautoy (***). 369 pages. Published in 2023.
+2024-02-07: Waverider by Kazu Kabuishi (****). 256 pages. Published in 2024.
+2024-02-07: Interesting Facts about Space by Emily Austin (***). 320 pages. Published in 2024.
+2024-02-03: Milton Friedman: The Last Conservative by Jennifer Burns (*****). 592 pages. Published in 2023.
+2024-01-31: First Lie Wins by Ashley Elston (****). 352 pages. Published in 2024.
+2024-01-20: Prime Obsession: Bernhard Riemann and the Greatest Unsolved Problem in Mathematics by John Derbyshire (****). 422 pages. Published in 2003.
+2024-01-15: The Dictionary of Lost Words by Pip Williams (***). 384 pages. Published in 2020.
+2024-01-14: Supernova by Kazu Kibuishi (***). 199 pages. Published in 2018.
+2024-01-13: Firelight by Kazu Kibuishi (****). 199 pages. Published in 2016.
+2024-01-12: Escape from Lucien by Kazu Kibuishi (***). 220 pages. Published in 2014.
+2024-01-11: Prince of the Elves by Kazu Kibuishi (****). 203 pages. Published in 2012.
+2024-01-10: The Last Council by Kazu Kibuishi (*****). 219 pages. Published in 2011.
+2024-01-09: The Cloud Searchers by Kazu Kibuishi (***). 203 pages. Published in 2010.
+2024-01-08: The Stonekeeper's Curse by Kazu Kibuishi (*****). 220 pages. Published in 2009.
+2024-01-07: The Stonekeeper by Kazu Kibuishi (****). 192 pages. Published in 2008.
+2024-01-06: Hello Beautiful by Ann Napolitano (***). 416 pages. Published in 2023.
+2023-12-29: Salmon P. Chase: Lincoln's Vital Rival by Walter Stahr (****). 845 pages. Published in 2022.
+2023-12-22: Translation State by Ann Leckie (****). 422 pages. Published in 2023.
+2023-12-21: Terry Pratchett: A Life With Footnotes: The Official Biography by Rob Wilkins (***). 435 pages. Published in 2023.
+2023-12-15: None of This Is True by Lisa Jewell (**). 384 pages. Published in 2023.
+2023-12-08: Which Door has the Cadillac: Adventures of a Real-Life Mathematician by Andrew Vazsonyi (****). 328 pages. Published in 2002.
+2023-12-04: Lost in Time by A. G. Riddle (****). 455 pages. Published in 2022.
+2023-12-02: Losing the Signal: The Untold Story Behind the Extraordinary Rise and Spectacular Fall of BlackBerry by Jacquie McNish & Sean Silcoff (***). 288 pages. Published in 2015.
+2023-11-28: You Are What You Watch by Walt Hickey (***). 239 pages. Published in 2023.
+2023-11-27: The Golden Gate by Amy Chua (***). 384 pages. Published in 2023.
+2023-11-25: Roadmarks by Roger Zelazny (**). 185 pages. Published in 1979.
+2023-11-21: Sid Meier's Memoir!: A Life in Computer Games by Sid Meier (*****). 286 pages. Published in 2020.
+2023-11-19: The Mambo Kings Play Songs of Love by Oscar Hijuelos (***). 407 pages. Published in 1989.
+2023-11-19: Drunk on All Your Strange New Words by Eddie Robson (****). 277 pages. Published in 2022.
+2023-11-17: A Russian Childhood by Sofya Kovalevskaya (***). 250 pages. Published in 1895.
+2023-11-16: System Collapse by Martha Wells (***). 245 pages. Published in 2023.
+2023-11-10: Scarcity Brain by Michael Easter (****). 304 pages. Published in 2023.
+2023-11-07: The Apprenticeship of a Mathematician by André Weil (***). 197 pages. Published in 1991.
+2023-11-07: Family Lore by Elizabeth Acevedo (*). 371 pages. Published in 2023.
+2023-11-04: The Book of Numbers by John Conway & Richard Guy (*****). 319 pages. Published in 1995.
+2023-11-03: Hidden Potential: The Science of Achieving Greater Things by Adam Grant (***). 304 pages. Published in 2023.
+2023-11-01: Eye of the Hurricane by Richard Bellman (****). 344 pages. Published in 1984.
+2023-11-01: Cassandra in Reverse by Holly Smale (***). 362 pages. Published in 2023.
+2023-10-27: No Brainer by Jeff Kinney (*****). 217 pages. Published in 2023.
+2023-10-25: Family Style: Memories of an American from Vietnam by Thien Pham (****). 234 pages. Published in 2023.
+2023-10-23: Wellness by Nathan Hill (*****). 624 pages. Published in 2023.
+2023-10-15: Tom Lake by Ann Patchett (****). 309 pages. Published in 2023.
+2023-10-04: Happiness Falls by Angie Kim (*). 387 pages. Published in 2023.
+2023-09-30: One of Us is Back by Karen M. McManus (***). 368 pages. Published in 2023.
+2023-09-22: The Mostly True Story of Tanner and Louise by Colleen Oakley (****). 337 pages. Published in 2023.
+2023-09-19: Eight Billion Genies by Charles Soule (****). 275 pages. Published in 2023.
+2023-09-16: Vera Wong's Unsolicited Advice for Murderers by Jesse Q. Sutanto (***). 339 pages. Published in 2023.
+2023-09-09: The World at the End of Time by Frederik Pohl (***). 400 pages. Published in 1990.
+2023-09-03: Henry VIII: The King and His Court by Alison Weir (****). 642 pages. Published in 2001.
+2023-09-01: One of Us Is Next by Karen M. McManus (***). 377 pages. Published in 2020.
+2023-08-30: Dreaming in Code: Two Dozen Programmers, Three Years, 4,732 Bugs, and One Quest for Transcendent Software by Scott Rosenberg (***). 403 pages. Published in 2007.
+2023-08-25: The Fellowship of the Ring by J.R.R. Tolkien (***). 432 pages. Published in 1954.
+2023-08-08: Remarkably Bright Creatures by Shelby Van Pelt (*****). 360 pages. Published in 2022.
+2023-07-31: Saturday Night at the Lakeside Supper Club by J. Ryan Stradal (**). 340 pages. Published in 2023.
+2023-07-16: Pineapple Street by Jenny Jackson (****). 304 pages. Published in 2023.
+2023-07-14: The Ten Equations that Rule the World by David Sumpter (***). 252 pages. Published in 2020.
+2023-07-14: Surreal Numbers by D. E. Knuth (***). 128 pages. Published in 1974.
+2023-07-13: The Accidental Time Machine by Joe Haldeman (***). 260 pages. Published in 2007.
+2023-07-06: The Song of the Cell: An Exploration of Medicine and the New Human by Siddhartha Mukherjee (***). 496 pages. Published in 2022.
+2023-07-04: Target Practice by Mike Maihack (****). 176 pages. Published in 2014.
+2023-07-02: The Wind Knows My Name by Isabel Allende (****). 260 pages. Published in 2023.
+2023-06-18: The Endless Vessel by Charles Soule (**). 368 pages. Published in 2023.
+2023-06-10: Attack Surface by Cory Doctorow (***). 384 pages. Published in 2020.
+2023-06-05: Paved Paradise: How Parking Explains the World by Henry Grabar (***). 368 pages. Published in 2023.
+2023-06-04: There Will Be Time by Poul Anderson (*). 176 pages. Published in 1972.
+2023-06-02: Walkaway by Cory Doctorow (**). 384 pages. Published in 2017.
+2023-06-01: Here and Now and Then by Mike Chen (***). 336 pages. Published in 2019.
+2023-05-25: Becoming Dr. Seuss: Theodor Geisel and the Making of an American Imagination by Brian Jay Jones (*****). 483 pages. Published in 2019.
+2023-05-22: Different, Not Less: A Neurodivergent's Guide to Embracing Your True Self and Finding Your Happily Ever After by Chloé Hayden (***). 283 pages. Published in 2022.
+2023-05-21: The Last Thing He Told Me by Laura Dave (****). 320 pages. Published in 2021.
+2023-05-18: The Shadow of the Torturer by Gene Wolfe (**). 304 pages. Published in 1980.
+2023-05-17: The Way The Future Was by Frederik Pohl (***). 293 pages. Published in 1978.
+2023-05-14: Unmasking Autism: Discovering the New Faces of Neurodiversity by Devon Price (***). 304 pages. Published in 2022.
+2023-05-14: Tell Me An Ending by Jo Harkin (***). 448 pages. Published in 2022.
+2023-05-11: De Gaulle by Julian Jackson (**). 928 pages. Published in 2018.
+2023-05-07: A Likely Story by Leigh McMullan Abramson (****). 352 pages. Published in 2023.
+2023-05-01: The Ten Thousand Doors of January by Alix E. Harrow (***). 374 pages. Published in 2019.
+2023-04-28: Puzzles of the Black Widowers by Isaac Asimov (***). 272 pages. Published in 1990.
+2023-04-26: In Five Years by Rebecca Serle (*). 272 pages. Published in 2020.
+2023-04-24: How Not to Drown in a Glass of Water by Angie Cruz (***). 195 pages. Published in 2022.
+2023-04-17: Cabbage and Caviar: A History of Food in Russia by Alison K. Smith (***). 352 pages. Published in 2021.
+2023-04-16: The Union Club Mysteries by Isaac Asimov (***). 211 pages. Published in 1983.
+2023-04-16: The London Eye Mystery by Siobhan Dowd (***). 333 pages. Published in 2007.
+2023-04-13: Victoria The Queen: An Intimate Biography of the Woman Who Ruled an Empire by Julia Baird (*****). 696 pages. Published in 2016.
+2023-04-09: Babel: An Arcane History by R. F. Kuang (*). 544 pages. Published in 2022.
+2023-03-29: Uncontrolled: The Surprising Payoff of Trial-and-Error for Business, Politics, and Society by Jim Manzi (**). 320 pages. Published in 2012.
+2023-03-29: The Unsinkable Greta James by Jennifer E. Smith (***). 320 pages. Published in 2022.
+2023-03-25: Chef's Kiss by Jarrett Melendez (***). 160 pages. Published in 2022.
+2023-03-25: An Unfinished Life: John F. Kennedy, 1917-1963 by Robert Dallek (***). 849 pages. Published in 2004.
+2023-03-24: Littlewood's Miscellany by J. E. Littlewood (**). 200 pages. Published in 1986.
+2023-03-22: Banquets of the Black Widowers by Isaac Asimov (***). 212 pages. Published in 1984.
+2023-03-22: A Room Called Earth by Madeleine Ryan (*). 290 pages. Published in 2020.
+2023-03-12: Invisible Differences by Julie Dachez (****). 196 pages. Published in 2020.
+2023-03-08: Rock Paper Scissors by Alice Feeney (***). 294 pages. Published in 2021.
+2023-03-07: Lucifer, Book Five by Mike Carey (*****). 352 pages. Published in 2014.
+2023-03-04: Lucifer, Book Four by Mike Carey (****). 392 pages. Published in 2014.
+2023-03-04: Henry Clay: The Essential American by David Stephen Heidler & Jeanne T. Heidler (*****). 660 pages. Published in 2010.
+2023-02-20: We Are the Light by Matthew Quick (***). 256 pages. Published in 2022.
+2023-02-18: The Bandit Queens by Parini Shroff (***). 352 pages. Published in 2023.
+2023-02-14: Nine Liars by Maureen Johnson (***). 449 pages. Published in 2022.
+2023-02-12: Casebook of the Black Widowers by Isaac Asimov (***). 182 pages. Published in 1980.
+2023-02-08: Frederick Douglass: Prophet of Freedom by David W. Blight (****). 912 pages. Published in 2018.
+2023-02-06: Lucifer, Book Three by Mike Carey (****). 400 pages. Published in 2013.
+2023-01-31: Eva Luna by Isabel Allende (***). 307 pages. Published in 1987.
+2023-01-29: Now Is Not the Time to Panic by Kevin Wilson (***). 256 pages. Published in 2022.
+2023-01-28: The Daughters of Ys by M. T. Anderson (****). 205 pages. Published in 2020.
+2023-01-22: Coders at Work: Reflections on the Craft of Programming by Peter Seibel (***). 617 pages. Published in 2009.
+2023-01-21: Signal Fires by Dani Shapiro (*****). 222 pages. Published in 2022.
+2023-01-17: The Very Secret Society of Irregular Witches by Sangu Mandanna (**). 336 pages. Published in 2022.
+2023-01-14: Mr. Jefferson's Hammer: William Henry Harrison and the Origins of American Indian Policy by Robert M. Owens (**). 344 pages. Published in 2007.
+2023-01-08: Cover Story by Susan Rigetti (****). 354 pages. Published in 2022.
+2023-01-07: The Storied Life of A.J. Fikry by Gabrielle Zevin (****). 260 pages. Published in 2014.
+2023-01-06: Violeta by Isabel Allende (***). 322 pages. Published in 2022.
+2023-01-03: How Minds Change: The Surprising Science of Belief, Opinion, and Persuasion by David McRaney (****). 352 pages. Published in 2022.
+2023-01-02: Wrong Place Wrong Time by Gillian McAllister (***). 416 pages. Published in 2022.
+2023-01-01: Duelling Idiots and Other Probability Puzzlers by Paul J. Nahin (**). 269 pages. Published in 2000.
+2022-12-25: Demon Copperhead by Barbara Kingsolver (***). 548 pages. Published in 2022.
+2022-12-24: James Madison: America's First Politician by Jay Cost (****). 464 pages. Published in 2021.
+2022-12-20: Joan Is Okay by Weike Wang (**). 224 pages. Published in 2022.
+2022-12-17: Five Survive by Holly Jackson (**). 400 pages. Published in 2022.
+2022-12-13: The Revolutionary: Samuel Adams by Stacy Schiff (***). 432 pages. Published in 2022.
+2022-12-05: A Memory Called Empire by Arkady Martine (***). 462 pages. Published in 2019.
+2022-12-01: More Tales of the Black Widowers by Isaac Asimov (***). 223 pages. Published in 1976.
+2022-11-29: Number-Crunching : Taming Unruly Computational Problems from Mathematical Physics to Science Fiction by Paul J. Nahin (***). 408 pages. Published in 2011.
+2022-11-27: Shop Class as Soulcraft: An Inquiry Into the Value of Work by Matthew B. Crawford (***). 241 pages. Published in 2009.
+2022-11-26: Diper Överlöde by Jeff Kinney (***). 217 pages. Published in 2022.
+2022-11-24: The Twist of a Knife by Anthony Horowitz (****). 384 pages. Published in 2022.
+2022-11-21: A Man of Iron: The Turbulent Life and Improbable Presidency of Grover Cleveland by Troy Senik (****). 384 pages. Published in 2022.
+2022-11-20: The Patron Saint of Second Chances by Christine Simon (***). 304 pages. Published in 2022.
+2022-11-18: When Least Is Best: How Mathematicians Discovered Many Clever Ways to Make Things as Small (or as Large) as Possible by Paul J. Nahin (****). 392 pages. Published in 2003.
+2022-11-16: The Diamond Eye by Kate Quinn (***). 435 pages. Published in 2022.
+2022-11-13: Sea of Tranquility by Emily St. John Mandel (**). 255 pages. Published in 2022.
+2022-11-12: The Nineties by Chuck Klosterman (***). 370 pages. Published in 2022.
+2022-11-06: Marvel 1602 by Neil Gaiman (***). 248 pages. Published in 2003.
+2022-11-04: Our Missing Hearts by Celeste Ng (**). 335 pages. Published in 2022.
+2022-10-31: The Last American Aristocrat: The Brilliant Life and Improbable Education of Henry Adams by David S. Brown (**). 464 pages. Published in 2020.
+2022-10-30: Alias Emma by Ava Glass (***). 288 pages. Published in 2022.
+2022-10-25: The Latecomer by Jean Hanff Korelitz (*****). 439 pages. Published in 2022.
+2022-10-23: Pinball: A Graphic History of the Silver Ball by Jon Chad (***). 208 pages. Published in 2022.
+2022-10-20: The Human Network: How Your Social Position Determines Your Power, Beliefs, and Behaviors by Matthew O. Jackson (**). 352 pages. Published in 2019.
+2022-10-20: Lucifer, Book Two by Mike Carey (****). 416 pages. Published in 2013.
+2022-10-19: The Elegance of the Hedgehog by Muriel Barbery (***). 325 pages. Published in 2006.
+2022-10-18: The Old Place by Bobby Finger (***). 336 pages. Published in 2022.
+2022-10-16: I. Asimov: A Memoir by Isaac Asimov (*****). 578 pages. Published in 1994.
+2022-10-15: Mathematical Puzzles by Peter Winkler (****). 410 pages. Published in 2020.
+2022-10-09: The Lost Ticket by Freya Sampson (***). 336 pages. Published in 2022.
+2022-10-08: Lucifer, Book One by Mike Carey (****). 382 pages. Published in 2012.
+2022-10-07: Quit: The Power of Knowing When to Walk Away by Annie Duke (*****). 336 pages. Published in 2022.
+2022-10-06: Mika in Real Life by Emiko Jean (****). 370 pages. Published in 2022.
+2022-10-04: The Early Asimov or, Eleven Years of Trying by Isaac Asimov (***). 568 pages. Published in 1972.
+2022-10-03: The Fortunes of Jaded Women by Carolyn Huynh (***). 255 pages. Published in 2022.
+2022-10-02: The Sun Also Rises by Ernest Hemingway (**). 189 pages. Published in 1926.
+2022-10-01: A Very Typical Family by Sierra Godfrey (***). 352 pages. Published in 2022.
+2022-09-30: The Lincoln Highway by Amor Towles (****). 576 pages. Published in 2021.
+2022-09-28: The Golden Enclaves by Naomi Novik (****). 496 pages. Published in 2022.
+2022-09-26: Nothing More to Tell by Karen M. McManus (****). 368 pages. Published in 2022.
+2022-09-25: The Founders: The Story of Paypal and the Entrepreneurs Who Shaped Silicon Valley by Jimmy Soni (****). 496 pages. Published in 2022.
+2022-09-23: The Kellys and the O'Kellys by Anthony Trollope (**). 464 pages. Published in 1848.
+2022-09-19: The Employees by Olga Ravn (***). 136 pages. Published in 2018.
+2022-09-18: Like, Comment, Subscribe: How YouTube Drives Google's Dominance and Controls Our Culture by Mark Bergen (***). 416 pages. Published in 2022.
+2022-09-16: Switch Craft: Harnessing the Power of Mental Agility to Transform Your Life by Elaine Fox (***). 319 pages. Published in 2022.
+2022-09-15: What If? 2: Additional Serious Scientific Answers to Absurd Hypothetical Questions by Randall Munroe (****). 368 pages. Published in 2022.
+2022-09-11: Carrie Soto Is Back by Taylor Jenkins Reid (*****). 384 pages. Published in 2022.
+2022-09-03: A Mirror Mended by Alix E. Harrow (*****). 130 pages. Published in 2022.
+2022-08-29: The Year the Yankees Lost the Pennant by Douglass Wallop (****). 258 pages. Published in 1954.
+2022-08-26: A Spindle Splintered by Alix E. Harrow (*****). 128 pages. Published in 2021.
+2022-08-25: Emotional: How Feelings Shape Our Thinking by Leonard Mlodinow (****). 272 pages. Published in 2022.
+2022-08-20: Cult Classic by Sloane Crosley (**). 304 pages. Published in 2022.
+2022-08-15: Existential Physics: A Scientist's Guide to Life's Biggest Questions by Sabine Hossenfelder (*****). 272 pages. Published in 2022.
+2022-08-14: This Time Tomorrow by Emma Straub (*****). 310 pages. Published in 2022.
+2022-08-13: Mouth to Mouth by Antoine Wilson (***). 179 pages. Published in 2022.
+2022-08-06: Thomas Paine and the Clarion Call for American Independence by Harlow Giles Unger (*****). 336 pages. Published in 2019.
+2022-07-30: Castle Richmond by Anthony Trollope (*). 520 pages. Published in 1860.
+2022-07-29: Transformer: The Deep Chemistry of Life and Death by Nick Lane (***). 400 pages. Published in 2022.
+2022-07-27: The Puzzler by A. J. Jacobs (*****). 368 pages. Published in 2022.
+2022-07-24: A Bend in the Stars by Rachel Barenbaum (***). 464 pages. Published in 2019.
+2022-07-22: The End of Burnout: Why Work Drains Us and How to Build Better Lives by Jonathan Malesic (***). 288 pages. Published in 2022.
+2022-07-19: The Happiness Hypothesis: Finding Modern Truth in Ancient Wisdom by Jonathan Haidt (***). 297 pages. Published in 2006.
+2022-07-13: Upgrade by Blake Crouch (***). 352 pages. Published in 2022.
+2022-07-11: Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (****). 332 pages. Published in 2004.
+2022-07-11: Acts of Violet by Margarita Montimore (*****). 336 pages. Published in 2022.
+2022-07-10: Destiny and Power: The American Odyssey of George Herbert Walker Bush by Jon Meacham (****). 794 pages. Published in 2015.
+2022-07-05: Tomorrow, and Tomorrow, and Tomorrow by Gabrielle Zevin (****). 401 pages. Published in 2022.
+2022-06-27: Disorientation by Elaine Hsieh Chou (**). 403 pages. Published in 2022.
+2022-06-22: The Vital Question: Energy, Evolution, and the Origins of Complex Life by Nick Lane (*****). 386 pages. Published in 2015.
+2022-06-22: Iona Iverson's Rules for Commuting by Clare Pooley (****). 352 pages. Published in 2022.
+2022-06-19: Don't Trust Your Gut: Using Data to Get What You Really Want in Life by Seth Stephens-Davidowitz (****). 320 pages. Published in 2022.
+2022-06-15: With a Mind to Kill by Anthony Horowitz (***). 288 pages. Published in 2022.
+2022-06-13: Stretch: Unlock the Power of Less - and Achieve More Than You Ever Imagined by Scott Sonenshein (****). 304 pages. Published in 2017.
+2022-06-09: Jeeves and the Feudal Spirit by P.G. Wodehouse (***). 231 pages. Published in 1954.
+2022-05-31: Joy at Work: Organizing Your Professional Life by Marie Kondo & Scott Sonenshein (****). 244 pages. Published in 2020.
+2022-05-28: The American Senator by Anthony Trollope (***). 608 pages. Published in 1877.
+2022-05-22: The Price of Peace: Money, Democracy, and the Life of John Maynard Keynes by Zachary D. Carter (*). 656 pages. Published in 2020.
+2022-05-19: Talent: How to Identify Energizers, Creatives, and Winners Around the World by Tyler Cowen & Daniel Gross (**). 288 pages. Published in 2022.
+2022-05-15: Lessons in Chemistry by Bonnie Garmus (***). 400 pages. Published in 2022.
+2022-05-12: Ring for Jeeves by P. G. Wodehouse (****). 240 pages. Published in 1953.
+2022-05-10: Wish You Were Here by Jodi Picoult (*). 310 pages. Published in 2021.
+2022-05-08: Reagan: An American Journey by Bob Spitz (***). 863 pages. Published in 2018.
+2022-05-02: Big Shot by Jeff Kinney (*****). 217 pages. Published in 2021.
+2022-05-01: Is He Popenjoy? by Anthony Trollope (****). 655 pages. Published in 1878.
+2022-04-30: My World Line: An Informal Autobiography by George Gamow (****). 178 pages. Published in 1970.
+2022-04-26: Asimov's Mysteries by Isaac Asimov (***). 259 pages. Published in 1968.
+2022-04-25: The Miscalculations of Lightning Girl by Stacy McAnulty (***). 294 pages. Published in 2018.
+2022-04-23: The Mayor of Casterbridge by Thomas Hardy (****). 445 pages. Published in 1886.
+2022-04-20: A Dingo Ate My Math Book: Mathematics from Down Under by Burkard Polster & Marty Ross (****). 253 pages. Published in 2017.
+2022-04-16: A Thousand Brains: A New Theory of Intelligence by Jeff Hawkins (***). 288 pages. Published in 2021.
+2022-04-14: Atomic Anna by Rachel Barenbaum (****). 448 pages. Published in 2022.
+2022-04-12: The Candy House by Jennifer Egan (*****). 334 pages. Published in 2022.
+2022-04-06: The Journey of Humanity: The Origins of Wealth and Inequality by Oded Galor (***). 304 pages. Published in 2022.
+2022-04-06: Putting Two and Two Together: Selections from the Mathologer File by Burkard Polster & Marty Ross (****). 274 pages. Published in 2021.
+2022-04-03: The Circular Staircase by Mary Roberts Rinehart (***). 208 pages. Published in 1908.
+2022-04-02: The Good Soldier by Ford Madox Ford (**). 368 pages. Published in 1915.
+2022-04-02: French Braid by Anne Tyler (****). 256 pages. Published in 2022.
+2022-04-01: Quichotte by Salman Rushdie (****). 393 pages. Published in 2019.
+2022-03-30: Upstream: The Quest to Solve Problems Before They Happen by Dan Heath (***). 320 pages. Published in 2020.
+2022-03-29: The Skull Beneath the Skin by P. D. James (***). 448 pages. Published in 1982.
+2022-03-26: The Why Axis: Hidden Motives and The Undiscovered Economics of Everyday Life by Uri Gneezy & John A. List (***). 288 pages. Published in 2013.
+2022-03-25: The Voltage Effect: How to Make Good Ideas Great and Great Ideas Scale by John A. List (****). 288 pages. Published in 2022.
+2022-03-24: Lore Olympus, Volume One by Rachel Smythe (**). 384 pages. Published in 2021.
+2022-03-23: The Cult of We: Wework, Adam Neumann, and the Great Startup Delusion by Eliot Brown (*****). 464 pages. Published in 2021.
+2022-03-22: The Einstein Intersection by Samuel R. Delany (**). 136 pages. Published in 1967.
+2022-03-21: Super Pumped: The Battle for Uber by Mike Isaac (****). 387 pages. Published in 2019.
+2022-03-20: The Prestige by Christopher Priest (*****). 404 pages. Published in 1995.
+2022-03-16: The Man from the Future: The Visionary Life of John von Neumann by Ananyo Bhattacharya (***). 354 pages. Published in 2021.
+2022-03-15: Waiting for the Barbarians by J. M. Coetzee (****). 152 pages. Published in 1980.
+2022-03-15: The Power of Regret: How Looking Backward Moves Us Forward by Daniel H. Pink (*****). 239 pages. Published in 2022.
+2022-03-15: Calling by Molly Harper (**). 224 pages. Published in 2022.
+2022-03-07: An Unsuitable Job for a Woman by P. D. James (****). 256 pages. Published in 1972.
+2022-03-05: The Power by Naomi Alderman (***). 341 pages. Published in 2016.
+2022-03-03: Reality+: Virtual Worlds and the Problems of Philosophy by David J. Chalmers (****). 544 pages. Published in 2022.
+2022-02-27: The Invention of Nature: Alexander von Humboldt's New World by Andrea Wulf (***). 473 pages. Published in 2015.
+2022-02-23: Rite of Passage by Alexei Panshin (***). 260 pages. Published in 1968.
+2022-02-13: The Postman Always Rings Twice by James M. Cain (***). 116 pages. Published in 1934.
+2022-02-12: Termination Shock by Neal Stephenson (**). 720 pages. Published in 2021.
+2022-02-12: My Brilliant Friend by Elena Ferrante (****). 331 pages. Published in 2011.
+2022-02-07: The Making of Prince of Persia: Journals 1985-1993 by Jordan Mechner (****). 336 pages. Published in 2020.
+2022-01-23: Perestroika in Paris by Jane Smiley (***). 265 pages. Published in 2020.
+2022-01-15: Norse Mythology, Volume 1 by Neil Gaiman (*****). 160 pages. Published in 2021.
+2022-01-12: Cloud Cuckoo Land by Anthony Doerr (*****). 626 pages. Published in 2021.
+2022-01-10: Point Blank by Anthony Horowitz (***). 274 pages. Published in 2001.
+2022-01-05: The Chief: The Life of William Randolph Hearst by David Nasaw (*****). 736 pages. Published in 2000.
+2022-01-02: The Last King of America: The Misunderstood Reign of George III by Andrew Roberts (***). 758 pages. Published in 2021.
+2022-01-01: Secrets of the Autistic Millionaire by David Plummer (***). 286 pages. Published in 2021.
+2021-12-23: Dava Shastri's Last Day by Kirthana Ramisetti (***). 384 pages. Published in 2021.
+2021-12-18: Creativity, Inc.: Overcoming the Unseen Forces That Stand in the Way of True Inspiration by Ed Catmull & Amy Wallace (****). 368 pages. Published in 2009.
+2021-12-17: The Honors Class: Hilbert's Problems and Their Solvers by Ben Yandell (*****). 486 pages. Published in 2001.
+2021-12-16: Bad Machinery: The Case of the Team Spirit by John Allison (***). 136 pages. Published in 2013.
+2021-12-16: A Time of Changes by Robert Silverberg (**). 205 pages. Published in 1971.
+2021-12-15: Woke Racism: How a New Religion Has Betrayed Black America by John McWhorter (****). 224 pages. Published in 2021.
+2021-12-12: The Invisible Library by Genevieve Cogman (***). 329 pages. Published in 2014.
+2021-12-11: Foundation and Empire by Isaac Asimov (***). 244 pages. Published in 1952.
+2021-12-06: Stormbreaker by Anthony Horowitz (****). 256 pages. Published in 2000.
+2021-11-30: The Scout Mindset: Why Some People See Things Clearly and Others Don't by Julia Galef (*****). 288 pages. Published in 2019.
+2021-11-28: Foundation by Isaac Asimov (****). 296 pages. Published in 1951.
+2021-11-27: Dr. Euler's Fabulous Formula: Cures Many Mathematical Ills by Paul J. Nahin (****). 380 pages. Published in 2006.
+2021-11-26: Thrawn: Treason by Timothy Zahn (****). 334 pages. Published in 2019.
 2021-11-21: Thrawn: Alliances by Timothy Zahn (***). 342 pages. Published in 2018.
 2021-11-16: Old New York by Edith Wharton (****). 315 pages. Published in 1924.
 2021-11-13: The Code Breaker: Jennifer Doudna, Gene Editing, and the Future of the Human Race by Walter Isaacson (***). 536 pages. Published in 2021.
