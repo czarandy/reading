@@ -99,6 +99,7 @@
 * Henry Clay: The Essential American by David Stephen Heidler & Jeanne T. Heidler (\*\*\*\*\*)
 * Becoming Dr. Seuss: Theodor Geisel and the Making of an American Imagination by Brian Jay Jones (\*\*\*\*\*)
 * Terry Pratchett: A Life With Footnotes: The Official Biography by Rob Wilkins (\*\*\*)
+* Lion of Liberty: Patrick Henry and the Call to a New Nation by Harlow Giles Unger (\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -168,6 +169,7 @@
 * [1729-1796] Catherine the Great: Portrait of a Woman by Robert K. Massie (\*\*\*\*)
 * [1732-1799] Washington: A Life by Ron Chernow (\*\*\*\*)
 * [1735-1826] John Adams by David McCullough (\*\*\*\*\*)
+* [1736-1799] Lion of Liberty: Patrick Henry and the Call to a New Nation by Harlow Giles Unger (\*\*\*)
 * [1737-1809] Thomas Paine and the Clarion Call for American Independence by Harlow Giles Unger (\*\*\*\*\*)
 * [1743-1826] Jefferson: Architect of American Liberty by John B. Boles (\*\*\*)
 * [1745-1813] Rush: Revolution, Madness, and the Visionary Doctor Who Became a Founding Father by Stephen Fried (\*\*\*)
