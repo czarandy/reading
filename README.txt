@@ -1,3 +1,33 @@
+2024-12-30: Chesire Crossing by Andy Weir (**). 128 pages. Published in 2019.
+2024-12-29: The Bridge: How the Roeblings Connected Brooklyn to New York by Peter J. Tomasi (*****). 208 pages. Published in 2018.
+2024-12-29: Gobsmacked!: The British Invasion of American English by Ben Yagoda (***). 288 pages. Published in 2024.
+2024-12-25: Look Closer by David Ellis (*****). 448 pages. Published in 2022.
+2024-12-21: The Praxis by Walter Jon Williams (**). 448 pages. Published in 2002.
+2024-12-17: The Marriage Act by John Marrs (***). 432 pages. Published in 2023.
+2024-12-08: Lion of Liberty: Patrick Henry and the Call to a New Nation by Harlow Giles Unger (***). 322 pages. Published in 2010.
+2024-12-06: The Minders by John Marrs (**). 400 pages. Published in 2020.
+2024-12-04: One for the Money by Janet Evanovich (***). 320 pages. Published in 1994.
+2024-12-01: Wicked: The Life and Times of the Wicked Witch of the West by Gregory Maguire (*). 406 pages. Published in 1995.
+2024-11-30: The Passengers by John Marrs (****). 340 pages. Published in 2019.
+2024-11-29: Breach of Trust by David Ellis (***). 417 pages. Published in 2011.
+2024-11-25: But Gentlemen Marry Brunettes by Anita Loos (***). 96 pages. Published in 1927.
+2024-11-24: The One by John Marrs (****). 418 pages. Published in 2016.
+2024-11-21: I Will Find You by Harlan Coben (****). 329 pages. Published in 2023.
+2024-11-19: Polostan by Neal Stephenson (***). 303 pages. Published in 2024.
+2024-11-17: The Hidden Man by David Ellis (*****). 325 pages. Published in 2009.
+2024-11-10: The Wild Robot by Peter Brown (****). 282 pages. Published in 2016.
+2024-11-10: Gentlemen Prefer Blondes by Anita Loos (****). 165 pages. Published in 1925.
+2024-11-09: Line of Vision by David Ellis (*****). 437 pages. Published in 2001.
+2024-11-05: Revenge of the Tipping Point: Overstories, Superspreaders, and the Rise of Social Engineering by Malcolm Gladwell (***). 368 pages. Published in 2024.
+2024-11-02: The Best Lies by David Ellis (*****). 373 pages. Published in 2024.
+2024-10-29: Hot Mess by Jeff Kinney (****). 217 pages. Published in 2024.
+2024-10-27: The Sequel by Jean Hanff Korelitz (***). 304 pages. Published in 2024.
+2024-10-26: The One and Only Family by Katherine Applegate (****). 272 pages. Published in 2024.
+2024-10-26: Play Nice: The Rise, Fall, and Future of Blizzard Entertainment by Jason Schreier (***). 384 pages. Published in 2024.
+2024-10-24: Adulthood is a Gift by Sarah Andersen (***). 144 pages. Published in 2024.
+2024-10-21: The One and Only Ruby by Katherine Applegate (****). 224 pages. Published in 2023.
+2024-10-20: The One and Only Bob by Katherine Applegate (****). 342 pages. Published in 2020.
+2024-10-20: Halting State by Charles Stross (**). 351 pages. Published in 2007.
 2024-10-19: The Wedding People by Alison Espach (****). 384 pages. Published in 2024.
 2024-10-17: Throwback by Peter Lerangis (**). 352 pages. Published in 2019.
 2024-10-16: Star Trek: Lower Decks by Ryan North (****). 120 pages. Published in 2023.
