@@ -100,6 +100,7 @@
 * Becoming Dr. Seuss: Theodor Geisel and the Making of an American Imagination by Brian Jay Jones (\*\*\*\*\*)
 * Terry Pratchett: A Life With Footnotes: The Official Biography by Rob Wilkins (\*\*\*)
 * Lion of Liberty: Patrick Henry and the Call to a New Nation by Harlow Giles Unger (\*\*\*)
+* Patriot or Traitor: The Life and Death of Sir Walter Ralegh by Anna Beer (\*\*\*)
 
 ## Business/Finance/Tech
 * The House of Morgan: An American Banking Dynasty and the Rise of Modern Finance by Ron Chernow (\*\*\*)
@@ -159,6 +160,7 @@
 * [1452-1519] Leonardo da Vinci by Walter Isaacson (\*\*\*)
 * [1491-1547] Henry VIII: The King and His Court by Alison Weir (\*\*\*\*)
 * [1533-1603] The Life of Elizabeth I by Alison Weir (\*\*\*\*)
+* [1553-1618] Patriot or Traitor: The Life and Death of Sir Walter Ralegh by Anna Beer (\*\*\*)
 * [1643-1727] Newton and the Counterfeiter by Thomas Levenson (\*\*\*\*)
 * [1667-1745] Jonathan Swift: The Reluctant Rebel by John Stubbs (\*\*\*)
 * [1672-1725] Peter the Great: His Life and World by Robert K. Massie (\*\*\*)
