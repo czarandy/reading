@@ -81,6 +81,7 @@
 * Suspended In Language: Niels Bohr's Life, Discoveries, And The Century He Shaped by Jim Ottaviani & Leland Purvis (\*\*\*\*)
 * Leonhard Euler: Mathematical Genius in the Enlightenment by Ronald S. Calinger (\*\*\*)
 * Edison by Edmund Morris (\*\*\*)
+* Strange Beauty: Murray Gell-Mann and the Revolution in Physics by George Johnson (\*\*\*\*\*)
 
 ## Writers/Artists/Musicians/Architects/Politicians
 * Shirley Jackson: A Rather Haunted Life by Ruth Franklin (\*\*\*\*\*)
@@ -242,8 +243,9 @@
 * [1918-1988] Feynman by Jim Ottaviani & Leland Myrick (\*\*\*\*) / Genius: The Life and Science of Richard Feynman by James Gleick (\*\*\*\*\*)
 * [1920-1957] Rosalind Franklin: The Dark Lady of DNA by Brenda Maddox (\*\*\*\*)
 * [1924-2018] Destiny and Power: The American Odyssey of George Herbert Walker Bush by Jon Meacham (\*\*\*\*)
-* [1924-present] His Very Best: Jimmy Carter, a Life by Jonathan Alter (\*\*\*\*\*)
-* [1930-present] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
+* [1924-2024] His Very Best: Jimmy Carter, a Life by Jonathan Alter (\*\*\*\*\*)
+* [1929-2019] Strange Beauty: Murray Gell-Mann and the Revolution in Physics by George Johnson (\*\*\*\*\*)
+* [1930-2023] First: Sandra Day O'Connor by Evan Thomas (\*\*\*\*)
 * [1931-2022] Gorbachev: His Life and Times by William Taubman (\*\*\*)
 * [1933-2020] Notorious RBG: The Life and Times of Ruth Bader Ginsburg by Irin Carmon & Shana Knizhnik (\*\*\*\*) / Ruth Bader Ginsburg: A Life by Jane Sherron de Hart (\*\*\*\*)
 * [1940-2020] Who is Alex Trebek by Lisa Rogak (\*\*\*\*)
