@@ -153,6 +153,7 @@
 * Sid Meier's Memoir!: A Life in Computer Games by Sid Meier (\*\*\*\*\*)
 * Which Door has the Cadillac: Adventures of a Real-Life Mathematician by Andrew Vazsonyi (\*\*\*\*)
 * I Want to Be Where the Normal People Are by Rachel Bloom (\*\*\*)
+* Just for Fun: The Story of an Accidental Revolutionary by Linus Torvalds & David Diamond (\*\*\*)
 
 # Biographies by DOB
 * [100 BC-44 BC] Caesar: Life of a Colossus by Adrian Goldsworthy (\*\*\*)
@@ -281,6 +282,7 @@
 * [1966-present] The Bassoon King by Rainn Wilson (\*\*\*)
 * [1968-present] Love and Math by Edward Frenkel (\*\*\*)
 * [1969-present] Persepolis by Marjane Satrapi (\*\*\*\*\*)
+* [1969-present] Just for Fun: The Story of an Accidental Revolutionary by Linus Torvalds & David Diamond (\*\*\*)
 * [1970-present] Bossypants by Tina Fey (\*\*\*)
 * [1970-present] Paddle Your Own Canoe: One Man's Fundamentals for Delicious Living by Nick Offerman (\*\*)
 * [1971-present] Yes Please by Amy Poehler (\*\*)
